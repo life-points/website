@@ -1,9 +1,10 @@
 ---
-title: "Natural Products you can FEEL GOOD about"
-date: 2018-01-01T15:29:07-05:00
-featured_image: ""
-tags: ["health"]
-draft: false
+title: Natural Products you can FEEL GOOD about
+date: 2018-01-01T20:29:07.000Z
+featured_image: ''
+tags:
+  - health
+draft: true
 ---
 
 I am a bit of a health nut. As I started my journey learning about real food and listening to podcasts and reading blog posts about food, I started also thinking about not just what I put inside my body, but what goes on the outside of my body. The skin is the largest organ and absorbs everything you put on it. People use many products on their bodies everyday and many of these products are filled with harmful chemicals that are carcinogens, toxic to the reproductive system, and known to disrupt the endocrine system, according to the environmental working group. When looking for natural products, I go to [http://www.ewg.org/skindeep/](http://www.ewg.org/skindeep/) and I try to find the products with a low hazard score. I set out to find natural products and through trial and error, these are some of the natural products I use…
