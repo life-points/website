@@ -1,7 +1,7 @@
 ---
 title: What I've Learned As a Mom
 date: 2018-01-07T14:30:38.762Z
-featured_image: /imgages/what-i-learned-as-a-mom.jpg
+featured_image: /images/what-i-learned-as-a-mom.jpg
 tags:
   - ''
 draft: false
