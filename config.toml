@@ -4,6 +4,7 @@ title = "LifePoints"
 theme = "ananke"
 enableRobotsTXT = true
 googleAnalytics= "UA-1382626-4"
+disqusShortname= "lifepoints-net"
 
 [sitemap]
   changefreq = "monthly"
