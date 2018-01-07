@@ -1,8 +1,7 @@
 ---
-layout: blog
 title: "Natural Products you can FEEL GOOD about"
 date: 2018-01-01T15:29:07-05:00
-featured_image:
+featured_image: ""
 tags: ["health"]
 draft: false
 ---
