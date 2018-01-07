@@ -1,6 +1,9 @@
 ---
 title: What I've Learned As a Mom
 date: 2018-01-07T14:30:38.762Z
+featured_image: /imgages/what-i-learned-as-a-mom.jpg
+tags:
+  - ''
 draft: true
 ---
 It still amazes me that I am a mother. It took us five months to get pregnant and that time of waiting was very challenging. It feels surreal knowing we have a baby boy and we are so grateful. I have watched kids, taught kids, entertained kids, and been around kids most of my life, but being a mom is totally different than I could have imagined. Here are the top 10 things I have learned as a mom.
