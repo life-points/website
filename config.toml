@@ -1,0 +1,32 @@
+baseURL = "/"
+languageCode = "en-us"
+title = "LifePoints"
+theme = "ananke"
+enableRobotsTXT = true
+googleAnalytics= "UA-1382626-4"
+
+[sitemap]
+  changefreq = "monthly"
+  priority = 0.5
+  filename = "sitemap.xml"
+
+# Initial site menu, you can extend menu with content.
+[[menu.main]]
+  name = "Blog"
+  weight = 10
+  identifier = "Blog"
+  url = "/"
+
+
+# Add your own params here
+[params]
+  author = "Nicole D."
+  favicon= "/img/avatar.jpg"
+  seotitle = "A mama sharing her life discoveries as she journeys"
+  subtitle = "live a natural lifestyle-motherhood, food, travel, health, & inspiration"
+  description = "LifePoints A new mama sharing her life discoveries as she journeys day by day trying to live a natural lifestyle-motherhood, food, travel, health, & inspiration."
+  paginate = 10
+  instagram = "https://instagram.com/life_points"
+  twitter =  "https://twitter.com/_LifePoints"
+  background_color_class = "bg-mid-gray"
+  featured_image="/img/bruno-cervera-368194.jpg"
