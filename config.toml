@@ -17,14 +17,13 @@ googleAnalytics= "UA-1382626-4"
   identifier = "Blog"
   url = "/"
 
-
 # Add your own params here
 [params]
   author = "Nicole D."
   favicon= "images/avatar.jpg"
   seotitle = "A mama sharing her life discoveries as she journeys"
   subtitle = "live a natural lifestyle-motherhood, food, travel, health, & inspiration"
-  description = "LifePoints A new mama sharing her life discoveries as she journeys day by day trying to live a natural lifestyle-motherhood, food, travel, health, & inspiration."
+  description = "LifePoints- A new mama sharing her life discoveries as she journeys day by day trying to live a natural lifestyle covering motherhood, food, travel, health, & inspiration."
   paginate = 10
   instagram = "https://instagram.com/life_points"
   twitter =  "https://twitter.com/_LifePoints"
