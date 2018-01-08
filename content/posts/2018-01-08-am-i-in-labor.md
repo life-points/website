@@ -4,7 +4,7 @@ date: 2018-01-08T15:06:43.463Z
 featured_image: /images/am-i-in-labor.jpg
 tags:
   - Motherhood
-draft: true
+draft: false
 ---
 I had heard that you _have_ to have a birth plan. I spent so much time thinking up my ideal birth. I read books on it, took birth classes, researched online, listened to podcasts and asked everyone and their mother what their birth story was. I looked at birth affirmations, listened to the hypnobirthing CD each night while I slept, and took prenatal yoga classes and dreamt of the birth position that I would give birth to my baby boy in. My goal was to have a positive birth and completely natural, drug-free, birth.
 
