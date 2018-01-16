@@ -4,7 +4,7 @@ date: 2018-01-16T17:02:25.039Z
 featured_image: /images/img_2483.jpg
 tags:
   - Health
-draft: true
+draft: false
 ---
 I have always been into natural things, but spending time with my Persian Mother in Law opened my world to an even more natural side of life. There are so many amazing ancient remedies from the Persian culture. Here are some things I have learned from her. Everything below is quoted from her. It is not medical advice and it is up to you if you want to try it. I have had success with all of these things.
 
