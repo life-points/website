@@ -30,7 +30,7 @@ I have always been into natural things, but spending time with my Persian Mother
 
 **Vegetables**: Beets, Carrots, Cauliflower, Cucumber, Celery, Cabbage, Turnips, Zucchini
 
-**Fruits**:Apricot, Banana, Kiwi, Grapefruit, Lemon, Pineapple, Peach, Orange, Watermelon
+**Fruits**: Apricot, Kiwi, Grapefruit, Lemon, Pineapple, Peach, Orange, Watermelon, Cherry
 
 **Beans**: Kidney beans, Lentils, Peas
 
@@ -50,7 +50,7 @@ I have always been into natural things, but spending time with my Persian Mother
 
 **Vegetables**: Broccoli, Fennel, Garlic, Ginger, Onion, Spinach, Squash, Sweet Potatoes
 
-**Fruit**: Apple, Cherry, Cantaloupe, Dates, Grapes, Figs, Raspberries, Mango, Plums, Cherries
+**Fruit**: Apple, Cherry, Cantaloupe, Dates, Grapes, Figs, Raspberries, Mango, Plums, Banana
 
 **Beans**:Chickpeas
 
