@@ -7,7 +7,7 @@ menu: [ "footer" ]
 
 ### 1. Overview
 
-LifePoints takes your privacy seriously. This privacy policy describes how and why we obtain, store and process data which can identify you. LifePoints may change this policy by updating this page. This policy is effective from April 22, 2015.
+LifePoints takes your privacy seriously. This privacy policy describes how and why we obtain, store and process data which can identify you. LifePoints may change this policy by updating this page. This policy is effective from January 1, 2018.
 
 ### 2. Information we collect
 
