@@ -1,4 +1,4 @@
-baseURL = "/"
+baseURL = "https://www.lifepoints.net/"
 languageCode = "en-us"
 title = "LifePoints"
 theme = "ananke"
@@ -11,20 +11,41 @@ disqusShortname= "lifepoints-net"
   priority = 0.5
   filename = "sitemap.xml"
 
+[taxonomies]
+  tag = "tags"
+
 # Initial site menu, you can extend menu with content.
 [[menu.main]]
-  name = "Blog"
+  name = "Health"
   weight = 10
-  identifier = "Blog"
-  url = "/"
+  identifier = "Health"
+  url = "/tags/health/"
+
+[[menu.main]]
+  name = "Food"
+  weight = 11
+  identifier = "Food"
+  url = "/tags/food/"
+
+# [[menu.main]]
+#   name = "Parenthood"
+#   weight = 12
+#   identifier = "Parenthood"
+#   url = "/tags/parenthood/"
+
+# [[menu.main]]
+#   name = "Inspiration"
+#   weight = 13
+#   identifier = "Inspiration"
+#   url = "/tags/inspiration/"
 
 # Add your own params here
 [params]
   author = "Nicole D."
   favicon= "images/avatar.jpg"
-  seotitle = "A mama sharing her life discoveries as she journeys"
-  subtitle = "live a natural lifestyle-motherhood, food, travel, health, & inspiration"
-  description = "LifePoints- A new mama sharing her life discoveries as she journeys day by day trying to live a natural lifestyle covering motherhood, food, travel, health, & inspiration."
+  description= "Pointers for your everyday life"
+  seotitle = "Pointers for your everyday life"
+  subtitle = "A new mama sharing about health, food, lifestyle, travel & inspiration"
   paginate = 10
   instagram = "https://instagram.com/life_points"
   twitter =  "https://twitter.com/_LifePoints"
