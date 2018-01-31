@@ -6,8 +6,7 @@ tags:
   - health
 draft: true
 ---
-
-I am a bit of a health nut. As I started my journey learning about real food and listening to podcasts and reading blog posts about food, I started also thinking about not just what I put inside my body, but what goes on the outside of my body. The skin is the largest organ and absorbs everything you put on it. People use many products on their bodies everyday and many of these products are filled with harmful chemicals that are carcinogens, toxic to the reproductive system, and known to disrupt the endocrine system, according to the environmental working group. When looking for natural products, I go to [http://www.ewg.org/skindeep/](http://www.ewg.org/skindeep/) and I try to find the products with a low hazard score. I set out to find natural products and through trial and error, these are some of the natural products I use…
+I am a bit of a health nut. As I started my journey learning about real food and listening to podcasts and reading blog posts about food, I started also thinking about not just what I put inside my body, but what goes on the outside of my body. The skin is the largest organ and absorbs everything you put on it. People use many products on their bodies everyday and many of these products are filled with harmful chemicals that are carcinogens, toxic to the reproductive system, and known to disrupt the endocrine system, according to the environmental working group. When looking for natural products, I go to <http://www.ewg.org/skindeep/> and I try to find the products with a low hazard score. I set out to find natural products and through trial and error, these are some of the natural products I use…
 
 **Toothpaste** [**Dr. Bronner&#39;s Peppermint Toothpaste**](https://www.amazon.com/Dr-Bronners-Magic-Toothpaste-Peppermint/dp/B00XZ2EO84) [**This toothpaste feels soft**](https://www.amazon.com/Dr-Bronners-Magic-Toothpaste-Peppermint/dp/B00XZ2EO84)
 
@@ -21,7 +20,7 @@ I use the peppermint or hemp brand
 
 **Facial cleanser: I only use jojoba oil from trader joes to wash my face** [**Pure Jojoba Oil**](https://www.amazon.com/Trader-Joes-100-Pure-Jojoba/dp/B007XPBJGY) **and if some pimples pop up, I dab a little tea tree oil on them** [**Australian Tee Tree Oil**](https://www.amazon.com/Trader-Joes-100-Australian-Tree/dp/B007OZ1HWE)
 
-**Cream:** I have really dry hands, so sometimes I will put coconut oil on them or I use [badger balm](https://www.walgreens.com/store/c/badger-balm---relief-for-hardworking-hands/ID=prod6146574-product?ext=gooPLA_-_Beauty&amp;pla&amp;adtype=pla&amp;kpid=sku6130018&amp;sst=16657c89-a03a-4847-b59d-6bc13837bf08) from whole foods because it had a 1 rating and it works really well!
+**Cream:** I have really dry hands, so sometimes I will put coconut oil on them or I use [badger balm](https://www.walgreens.com/store/c/badger-balm---relief-for-hardworking-hands/ID=prod6146574-product?ext=gooPLA_-_Beauty&pla&adtype=pla&kpid=sku6130018&sst=16657c89-a03a-4847-b59d-6bc13837bf08) from whole foods because it had a 1 rating and it works really well!
 
 **Stretch Marks:** I have only used [coconut oil](https://www.amazon.com/Trader-Joes-Organic-Virgin-Coconut/dp/B007UWNBYS) this whole pregnancy, so we will see how it works.
 
@@ -41,7 +40,7 @@ Now I make my own...
 
 **Perfume:** I don&#39;t wear it, but if I want a little scent, I just wear essential oils. What are your favorite essential oils?
 
-**Tampons:** This may be TMI, but I love this brand, Lola Tampons. It is a great company by women, for women transforming tampons. The Tampons are 100% cotton. Sign up here with my code, ** ** [https://goo.gl/v3dBnm](https://goo.gl/v3dBnm) [to get $5 off.](https://goo.gl/v3dBnm) [Did you know that the FDA doesn&#39;t require tampon brands to disclose a comprehensive list of ingredients, so most of them don&#39;t.](https://goo.gl/v3dBnm) [I feel so much better, knowing what I am putting in my body, though I won&#39;t be wearing tampons for a while ;).](https://goo.gl/v3dBnm)
+**Tampons:** This may be TMI, but I love this brand, Lola Tampons. It is a great company by women, for women transforming tampons. The Tampons are 100% cotton. Sign up here with my code, \*\* \*\* <https://goo.gl/v3dBnm> [to get $5 off.](https://goo.gl/v3dBnm) [Did you know that the FDA doesn&#39;t require tampon brands to disclose a comprehensive list of ingredients, so most of them don&#39;t.](https://goo.gl/v3dBnm) [I feel so much better, knowing what I am putting in my body, though I won&#39;t be wearing tampons for a while ;).](https://goo.gl/v3dBnm)
 
 **Cleaners:** I just started making my own with white vinegar, [DR-BRONNERS-Pure-Castile-Soap](https://www.amazon.com/DR-BRONNERS-Pure-Castile-Soap/dp/B01J65C1KQ), and essential oils and water and it smells so nice and cleans well.
 
@@ -53,7 +52,8 @@ Now I make my own...
 
 **Medicine:** I really try to avoid medicine. When I start to feel a cold coming on I drink [Ginger Tea](http://shop.equalexchange.coop/organic-tea-ginger.html), with [Apple Cider Vinegar](https://www.amazon.com/Bragg-Organic-Apple-Cider-Vinegar/dp/B001I7MVG0), [Oil of Oregano](https://www.amazon.com/Oregano-Oil-30ml-Certified-Organic/dp/B008RBPYXM), [Raw Honey](https://www.amazon.com/Trader-Joes-Organic-Honey-Ounce/dp/B0090REQAY) and [Cayenne Pepper](https://www.amazon.com/Simply-Organic-Certified-2-89-Ounce-Container/dp/B0019I2FP0) and that normally does the trick.
 
+I also am part of** thrive market**. They deliver the world's best healthy food and natural products at whole sale prices . I always discover new healthy products on there and if you use this link, you receive 25% off  [ http://thrv.me/bhw3a6](< http://thrv.me/bhw3a6>)
+
 There are still so many natural products I am still on a journey to discover, but I hope these helped!! Let me know if you discover any good natural products too!
 
 The information in this blog has not been evaluated by the FDA and is not intended to diagnose, treat, prevent, or cure any disease.
-
