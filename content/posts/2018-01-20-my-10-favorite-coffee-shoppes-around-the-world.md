@@ -7,7 +7,7 @@ draft: true
 ---
 ![](/images/img_2847 (1).jpg)
 
-I love coffee, like REALLY love coffee! It all started when I was young. My family is Italian and mornings always started with coffee, holiday's ended with coffee, and for fun we would go to diners for a midnight coffee. I probably started having coffee pretty young too. I know a lot of people don't think coffee is healthy but it is my one vice, so I am leaning toward the fact that it is healthy. Below you will find my 10 favorite coffee shoppes around the world.
+I love coffee, like REALLY love coffee! It all started when I was young. My family is Italian and mornings always started with coffee, holiday's ended with coffee, and for fun we would go to diners for a midnight coffee. I probably started having coffee pretty young too. I know a lot of people don't think coffee is healthy but it is my one vice, so I am leaning toward the fact that it is healthy. Below you will find my 10 favorite coffee shoppes around the world. 
 
 1. **Caffe Reggio (Greenwich Village, NY)**-This Italian Cafe originated in 1927 and is Greenwich Village's oldest coffee shoppe. The first cappuccino was introduced in America here and I happen to have fallen in love with my husband at this beautiful cafe.
 
@@ -46,3 +46,7 @@ I love coffee, like REALLY love coffee! It all started when I was young. My fami
 ![](/images/img_2848 (1).jpg)
 
 10. **Chocopain Bakery (Hoboken, NJ)-** This place has always been my go to spot to meet with friends. You can watch them making fresh bread and pastries and I love their chocolate bread and coffee. They even have couches and a play area for kids upstairs. When I go there I feel like I am sitting in my living room in France.
+
+
+
+I am excited to explore even more coffee shoppes around the world. What are your favorite coffee shoppes?
