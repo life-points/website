@@ -1,12 +1,11 @@
 ---
-title: My 10 Favorite Coffee Shoppes around the World
+title: My 10 Favorite Coffee Shoppes Around the World
 date: 2018-01-19T17:27:29.493Z
+featured_image: /images/img_2847 (1).jpg
 tags:
   - Food
 draft: false
 ---
-![](/images/img_2847 (1).jpg)
-
 I love coffee, like REALLY love coffee! It all started when I was young. My family is Italian and mornings always started with coffee, holiday's ended with coffee, and for fun we would go to diners for a midnight coffee. I probably started having coffee pretty young too. I know a lot of people don't think coffee is healthy but it is my one vice, so I am leaning toward the fact that it is healthy. Below you will find my 10 favorite coffee shoppes around the world. 
 
 1. [**Caffe Reggio**](https://www.yelp.com/biz/caffe-reggio-new-york?hrid=V471FdIt1bpKA_xZABZx_w&rh_ident=square_park&rh_type=phrase)** (Greenwich Village, NY)**-This Italian Cafe originated in 1927 and is Greenwich Village's oldest coffee shoppe. The first cappuccino was introduced in America here and I happen to have fallen in love with my husband at this beautiful cafe.
