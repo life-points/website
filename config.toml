@@ -26,18 +26,25 @@ disqusShortname= "lifepoints-net"
   weight = 11
   identifier = "Food"
   url = "/tags/food/"
+  
+[[menu.main]]
+  name = "Parenthood"
+  weight = 12
+  identifier = "Parenthood"
+  url = "/tags/parenthood/"
 
-# [[menu.main]]
-#   name = "Parenthood"
-#   weight = 12
-#   identifier = "Parenthood"
-#   url = "/tags/parenthood/"
-
-# [[menu.main]]
-#   name = "Inspiration"
-#   weight = 13
-#   identifier = "Inspiration"
-#   url = "/tags/inspiration/"
+[[menu.main]]
+  name = "Health"
+  weight = 13
+  identifier = "Health"
+  url = "/tags/health/"
+  
+  
+[[menu.main]]
+  name = "Inspiration"
+  weight = 14
+  identifier = "Inspiration"
+  url = "/tags/inspiration/"
 
 # Add your own params here
 [params]
