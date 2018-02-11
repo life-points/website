@@ -34,10 +34,10 @@ disqusShortname= "lifepoints-net"
   url = "/tags/parenthood/"
 
 [[menu.main]]
-  name = "Health"
+  name = "Travel"
   weight = 13
-  identifier = "Health"
-  url = "/tags/health/"
+  identifier = "Travel"
+  url = "/tags/travel/"
   
   
 [[menu.main]]
