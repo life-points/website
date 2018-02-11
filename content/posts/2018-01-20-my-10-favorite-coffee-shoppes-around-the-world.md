@@ -8,15 +8,15 @@ draft: false
 ---
 I love coffee, like REALLY love coffee! It all started when I was young. My family is Italian and mornings always started with coffee, holiday's ended with coffee, and for fun we would go to diners for a midnight coffee. I probably started having coffee pretty young too. I know a lot of people don't think coffee is healthy but it is my one vice, so I am leaning toward the fact that it is healthy. Below you will find my 10 favorite coffee shoppes around the world. 
 
-1. [**Caffe Reggio**](https://www.yelp.com/biz/caffe-reggio-new-york?hrid=V471FdIt1bpKA_xZABZx_w&rh_ident=square_park&rh_type=phrase)** (Greenwich Village, NY)**-This Italian Cafe originated in 1927 and is Greenwich Village's oldest coffee shoppe. The first cappuccino was introduced in America here and I happen to have fallen in love with my husband at this beautiful cafe.
+1. [**Caffe Reggio**](https://www.yelp.com/biz/caffe-reggio-new-york?hrid=V471FdIt1bpKA_xZABZx_w&rh_ident=square_park&rh_type=phrase) **(Greenwich Village, NY)**-This Italian Cafe originated in 1927 and is Greenwich Village's oldest coffee shoppe. The first cappuccino was introduced in America here and I happen to have fallen in love with my husband at this beautiful cafe.
 
 ![](/images/12249678_10100474634630434_8638297903788185841_n (1).jpg)
 
-2. [**Subculture Coffee**](https://subculturecoffee.com/)** (West Palm Beach, FL)**- This hip coffee shoppe is located in West Palm Beach. We discovered it one day and felt such a nice vibe there. We even were able to watch Eduardo Kobra, the street artist, paint a mural there of Albert Einstein. Watch this [video](https://vimeo.com/208975065) to see more about this shoppe.
+2. [**Subculture Coffee**](https://subculturecoffee.com/) **(West Palm Beach, FL)**- This hip coffee shoppe is located in West Palm Beach. We discovered it one day and felt such a nice vibe there. We even were able to watch Eduardo Kobra, the street artist, paint a mural there of Albert Einstein. Watch this [video](https://vimeo.com/208975065) to see more about this shoppe.
 
 ![](/images/img_2829 (1).jpg)
 
-3. [**Toms**](https://www.yelp.com/biz/toms-austin-5)** (Austin, TX)-** This coffee shoppe in Austin, Texas makes you feel like you are visiting a friend at their home. It has such a relaxed vibe and you can purchase Tom's gear while you are there. I love their swinging chairs too. They also have a lot of community events. 
+3. [**Toms**](https://www.yelp.com/biz/toms-austin-5) **(Austin, TX)-** This coffee shoppe in Austin, Texas makes you feel like you are visiting a friend at their home. It has such a relaxed vibe and you can purchase Tom's gear while you are there. I love their swinging chairs too. They also have a lot of community events. 
 
 ![](/images/img_2831 (1).jpg)
 
