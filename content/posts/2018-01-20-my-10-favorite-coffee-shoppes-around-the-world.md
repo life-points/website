@@ -36,7 +36,7 @@ I love coffee, like REALLY love coffee! It all started when I was young. My fami
 
 ![](/images/img_2833 (1).jpg)
 
-8. [**Lackawanna Coffee **](http://www.lackawannacoffee.com/) **(Jersey City, NJ)**- I love that this coffee shoppe has a ping pong table! It has such a fun outdoor seating area and they even make turmeric lattes. It is a very hip spot!
+8. [**Lackawanna Coffee**](http://www.lackawannacoffee.com/) **(Jersey City, NJ)**- I love that this coffee shoppe has a ping pong table! It has such a fun outdoor seating area and they even make turmeric lattes. It is a very hip spot!
 
 ![](/images/img_4969 (1).jpg)
 
@@ -44,6 +44,6 @@ I love coffee, like REALLY love coffee! It all started when I was young. My fami
 
 ![](/images/img_2848 (1).jpg)
 
-10. [**Chocopain Bakery **](http://www.chocopainbakery.com/) **(Hoboken, NJ)**- This place has always been my go to spot to meet with friends. You can watch them making fresh bread and pastries and I love their chocolate bread and coffee. They even have couches and a play area for kids upstairs. When I go there I feel like I am sitting in my living room in France.
+10. [**Chocopain Bakery**](http://www.chocopainbakery.com/) **(Hoboken, NJ)**- This place has always been my go to spot to meet with friends. You can watch them making fresh bread and pastries and I love their chocolate bread and coffee. They even have couches and a play area for kids upstairs. When I go there I feel like I am sitting in my living room in France.
 
 I am excited to explore even more coffee shoppes around the world. What are your favorite coffee shoppes?
