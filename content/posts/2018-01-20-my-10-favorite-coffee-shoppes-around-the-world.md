@@ -20,7 +20,7 @@ I love coffee, like REALLY love coffee! It all started when I was young. My fami
 
 ![](/images/img_2831 (1).jpg)
 
-4. [**Antique Bar and Bakery**](http://antiquebarbakery.com/)** (Hoboken, NJ)**- I love people, but I love to be able to have a coffee and a conversation and sometimes when coffee shoppes are packed with people next to you, it feels like you have to whisper or everyone knows your business. This place made me feel at home. They even refill your coffee cup, as many times as you want. The food is delicious and I was able to share their bread with a friend. The atmosphere makes you feel like you stepped back in time to the 70s. Check out this [video](https://vimeo.com/201351576).
+4. [**Antique Bar and Bakery**](http://antiquebarbakery.com/) **(Hoboken, NJ)**- I love people, but I love to be able to have a coffee and a conversation and sometimes when coffee shoppes are packed with people next to you, it feels like you have to whisper or everyone knows your business. This place made me feel at home. They even refill your coffee cup, as many times as you want. The food is delicious and I was able to share their bread with a friend. The atmosphere makes you feel like you stepped back in time to the 70s. Check out this [video](https://vimeo.com/201351576).
 
 ![](/images/img_2846 (1).jpg)
 
@@ -32,11 +32,11 @@ I love coffee, like REALLY love coffee! It all started when I was young. My fami
 
 ![](/images/img_2835 (1).jpg)
 
-7. [**Mazarine Coffee**](https://mazarinecoffee.com/)** (San Francisco, CA)**-I went here and discovered Nitro coffee for the first time and became a little obsessed with it. This beautiful coffee shoppe was inspired by the Bibliothèque Mazarine, the first public library in France. The staff is all very friendly and it is a bustling place.
+7. [**Mazarine Coffee**](https://mazarinecoffee.com/) **(San Francisco, CA)**-I went here and discovered Nitro coffee for the first time and became a little obsessed with it. This beautiful coffee shoppe was inspired by the Bibliothèque Mazarine, the first public library in France. The staff is all very friendly and it is a bustling place.
 
 ![](/images/img_2833 (1).jpg)
 
-8. [**Lackawanna Coffee **](http://www.lackawannacoffee.com/)**(Jersey City, NJ)-**I love that this coffee shoppe has a ping pong table! It has such a fun outdoor seating area and they even make turmeric lattes. It is a very hip spot!
+8. [**Lackawanna Coffee **](http://www.lackawannacoffee.com/) **(Jersey City, NJ)**- I love that this coffee shoppe has a ping pong table! It has such a fun outdoor seating area and they even make turmeric lattes. It is a very hip spot!
 
 ![](/images/img_4969 (1).jpg)
 
@@ -44,6 +44,6 @@ I love coffee, like REALLY love coffee! It all started when I was young. My fami
 
 ![](/images/img_2848 (1).jpg)
 
-10. [**Chocopain Bakery **](http://www.chocopainbakery.com/)**(Hoboken, NJ)-** This place has always been my go to spot to meet with friends. You can watch them making fresh bread and pastries and I love their chocolate bread and coffee. They even have couches and a play area for kids upstairs. When I go there I feel like I am sitting in my living room in France.
+10. [**Chocopain Bakery **](http://www.chocopainbakery.com/) **(Hoboken, NJ)**- This place has always been my go to spot to meet with friends. You can watch them making fresh bread and pastries and I love their chocolate bread and coffee. They even have couches and a play area for kids upstairs. When I go there I feel like I am sitting in my living room in France.
 
 I am excited to explore even more coffee shoppes around the world. What are your favorite coffee shoppes?
