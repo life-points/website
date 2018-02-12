@@ -6,7 +6,7 @@ tags:
   - Food
 draft: false
 ---
-I love coffee, like REALLY love coffee! It all started when I was young. My family is Italian and mornings always started with coffee, holiday's ended with coffee, and for fun we would go to diners for a midnight coffee. I probably started having coffee pretty young too. I know a lot of people don't think coffee is healthy but it is my one vice, so I am leaning toward the fact that it is healthy. Below you will find my 10 favorite coffee shoppes around the world. 
+I love coffee, like REALLY love coffee! It all started when I was young. My family is Italian and mornings always started with coffee, holidays ended with coffee, and for fun we would go to diners for a midnight coffee. I started having coffee pretty young too. I know a lot of people don't think coffee is healthy but it is my one vice, so I am leaning toward the fact that it is healthy. Below you will find my 10 favorite coffee shoppes around the world. 
 
 * [**Caffe Reggio**](https://www.yelp.com/biz/caffe-reggio-new-york?hrid=V471FdIt1bpKA_xZABZx_w&rh_ident=square_park&rh_type=phrase) **(Greenwich Village, NY)**-This Italian Cafe originated in 1927 and is Greenwich Village's oldest coffee shoppe. The first cappuccino was introduced in America here and I happen to have fallen in love with my husband at this beautiful cafe.
 
