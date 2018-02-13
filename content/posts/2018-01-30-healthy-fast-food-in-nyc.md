@@ -4,7 +4,7 @@ date: 2018-01-29T20:52:58.106Z
 featured_image: /images/img_2849 (1).jpg
 tags:
   - Food
-draft: true
+draft: false
 ---
 I eat about 90% organic, and try to limit grains. I used to be strictly paleo and I also have followed whole 30. The tricky part about dietary restrictions is going out to eat. Where can you go and still stick to your diet or shall I say lifestyle? [HU Kitchen](https://hukitchen.com/) is your place!
 
