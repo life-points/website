@@ -1,11 +1,12 @@
 ---
 title: Healthy Fast Food in NYC
 date: 2018-01-29T20:52:58.106Z
+featured_image: /images/img_2849 (1).jpg
 tags:
   - Food
 draft: true
 ---
-I eat about 90% organic, and try to limit grains. I used to be strictly paleo and I also have followed whole 30. The tricky part about dietary restrictions is going out to eat. Where can you go and still stick to your diet or shall I say lifestyle? HU Kitchen is your place!
+I eat about 90% organic, and try to limit grains. I used to be strictly paleo and I also have followed whole 30. The tricky part about dietary restrictions is going out to eat. Where can you go and still stick to your diet or shall I say lifestyle? [HU Kitchen](https://hukitchen.com/) is your place!
 
 Their slogan is "Get back to Human." When you enter, you will not find any conventional sweeteners, gluten, soy, GMO corn, commercial lecithins, no carrageenan, no preservatives, no chemically decaffinated coffee, no conventional chocolate, no canola/vegetable oils, no unverified natural flavors, no industrially-produced ascorbic or citric acids, no dextrin/maltodextrin, no refined sugar, no msg, and no gums. Are you hungry yet?
 
