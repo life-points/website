@@ -38,4 +38,12 @@ Because of this, whenever I bump into someone I know, I always try to make a poi
 
 8. Whole 30-I decided to follow the whole 30 plan with my husband and we both lost a ton of inches. More than that it changed the way we look at food and made us look at the ingredients more. I discovered that corn bothers me by eliminating grains, corn, beans, sugar, dairy, and anything processed for 30 days.
 
-“The food you eat either makes you more healthy or less healthy. Those are your options.”
+“The food you eat either makes you more healthy or less healthy. Those are your options.” 
+
+9.  Improv Wisdom: Don't Prepare, Just Show Up by Patricia Ryan Madson-I love improv and have always felt that improv taught me so much about life. This book proves it. I even taught classes on how to apply improv to your life and to your classroom and this book really inspired me. 
+
+“Writers write to discover what they have to say bringing to consciousness what they already know. It is the same with speech: speak to discover what you want to say. Sculpt, correct, refine, and redirect your thoughts on the fly as you speak. Authentic speech includes lively editing as part of the process.” 
+
+10. The Life-Changing Magic of Tidying Up: The Japanese Art of Decluttering and Organizing by Marie Kondo-This book taught me to let go of things I do not need or find joy in. When I first read it, I followed everything to a T, because I am a rule follower. After time passed, I wasn't able to keep up with everything in the book, but some things really stuck! 
+
+“Keep only those things that speak to your heart. Then take the plunge and discard all the rest. By doing this, you can reset your life and embark on a new lifestyle.”
