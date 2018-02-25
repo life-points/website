@@ -1,5 +1,5 @@
 ---
-title: Books that have Impacted my Life
+title: Books That Have Impacted My Life
 date: 2018-01-23T00:31:19.224Z
 tags:
   - Inspiration
