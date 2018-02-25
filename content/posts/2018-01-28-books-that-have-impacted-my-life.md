@@ -3,7 +3,7 @@ title: Books that have Impacted my Life
 date: 2018-01-23T00:31:19.224Z
 tags:
   - Inspiration
-draft: true
+draft: false
 ---
 I love reading inspirational books. I guess once I read Chicken Soup for the Soul as a youngster, I was hooked. Self-help books always seem to get me thinking and some are so powerful that they are able to change you. Below are the top books that have impacted my life and my favorite quotes from them.
 
