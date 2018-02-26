@@ -18,9 +18,9 @@ I noticed some spotting the night before my birth and called my doula. She said 
 
 Books I read:
 
-* [Hypnobirthing: The Mongan Method](https://www.amazon.com/HypnoBirthing-natural-approach-comfortable-birthing/dp/0757302661)
-* [The Mama Natural Week-by-Week Guide to Pregnancy and Childbirth](https://www.amazon.com/Natural-Week-Week-Pregnancy-Childbirth-ebook/dp/B01CO343NU)
-* [Ina May's Guide to Childbirth](https://www.amazon.com/Ina-Mays-Guide-Childbirth-Material-ebook/dp/B000S1LT1A/ref=sr_1_1?s=digital-text&ie=UTF8&qid=1512930727&sr=1-1&keywords=ina+may)
+* <a target="_blank" href="https://www.amazon.com/gp/product/0757318371/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=0757318371&linkCode=as2&tag=lifepoints02-20&linkId=7e92be39956f588e4b6a82efaa60e76e">HypnoBirthing, Fourth Edition: The natural approach to safer, easier, more comfortable birthing - The Mongan Method, 4th Edition</a><img src="//ir-na.amazon-adsystem.com/e/ir?t=lifepoints02-20&l=am2&o=1&a=0757318371" width="1" height="1" border="0" alt="" style="border:none !important; margin:0px !important;" />
+* <a target="_blank" href="https://www.amazon.com/gp/product/150114667X/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=150114667X&linkCode=as2&tag=lifepoints02-20&linkId=a077c48901bfa0260b6b55e26c6ced9d">The Mama Natural Week-by-Week Guide to Pregnancy and Childbirth</a><img src="//ir-na.amazon-adsystem.com/e/ir?t=lifepoints02-20&l=am2&o=1&a=150114667X" width="1" height="1" border="0" alt="" style="border:none !important; margin:0px !important;" />
+* <a target="_blank" href="https://www.amazon.com/gp/product/0553381156/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=0553381156&linkCode=as2&tag=lifepoints02-20&linkId=e991bcf44baf578666b4f707b5a31cfd">Ina May's Guide to Childbirth</a><img src="//ir-na.amazon-adsystem.com/e/ir?t=lifepoints02-20&l=am2&o=1&a=0553381156" width="1" height="1" border="0" alt="" style="border:none !important; margin:0px !important;" />
 
 Classes I took:
 
