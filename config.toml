@@ -46,6 +46,12 @@ disqusShortname= "lifepoints-net"
   identifier = "Inspiration"
   url = "/tags/inspiration/"
 
+[[menu.main]]
+  name = "Subscribe"
+  weight = 15
+  identifier = "Subscribe"
+  url = "/subscribe"
+
 # Add your own params here
 [params]
   author = "Nicole D."
