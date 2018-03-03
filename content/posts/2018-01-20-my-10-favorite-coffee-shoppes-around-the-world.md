@@ -1,5 +1,5 @@
 ---
-title: My 10 Favorite Coffee Shoppes Around the World
+title: My 10 Favorite Coffee Shops Around the World
 date: 2018-01-19T17:27:29.493Z
 featured_image: /images/img_2847 (1).jpg
 tags:
@@ -12,7 +12,7 @@ I love coffee, like REALLY love coffee! It all started when I was young. My fami
 
 ![](/images/12249678_10100474634630434_8638297903788185841_n (1).jpg)
 
-* [**Subculture Coffee**](https://subculturecoffee.com/) **(West Palm Beach, FL)**- This hip coffee shoppe is located in West Palm Beach. My husband and I discovered it one day and felt such a nice vibe there. We even were able to watch Eduardo Kobra, the street artist, paint a mural  of Albert Einstein, while we were sipping on coffee there. Watch this [video](https://vimeo.com/208975065) to see more about this shoppe.
+* [**Subculture Coffee**](https://subculturecoffee.com/) **(West Palm Beach, FL)**- This hip coffee shop is located in West Palm Beach. My husband and I discovered it one day and felt such a nice vibe there. We even were able to watch Eduardo Kobra, the street artist, paint a mural  of Albert Einstein, while we were sipping on coffee there. Watch this [video](https://vimeo.com/208975065) to see more about this shoppe.
 
 ![](/images/img_2829 (1).jpg)
 
@@ -20,11 +20,11 @@ I love coffee, like REALLY love coffee! It all started when I was young. My fami
 
 ![](/images/img_2831 (1).jpg)
 
-* [**Antique Bar and Bakery**](http://antiquebarbakery.com/) **(Hoboken, NJ)**- I love people, but I love to be able to have a coffee and a conversation and sometimes when coffee shoppes are packed with people next to you, it feels like you have to whisper or everyone knows your business. This place has the perfect amount of space to have a conversation and made me feel at home. They even refill your coffee cup, as many times as you want. The food is delicious and I was able to share their bread with a friend. The atmosphere makes you feel like you stepped back in time to the 70s. Check out this [video](https://vimeo.com/201351576) to see more about this shoppe.
+* [**Antique Bar and Bakery**](http://antiquebarbakery.com/) **(Hoboken, NJ)**- I love people, but I love to be able to have a coffee and a conversation and sometimes when coffee shops are packed with people next to you, it feels like you have to whisper or everyone knows your business. This place has the perfect amount of space to have a conversation and made me feel at home. They even refill your coffee cup, as many times as you want. The food is delicious and I was able to share their bread with a friend. The atmosphere makes you feel like you stepped back in time to the 70s. Check out this [video](https://vimeo.com/201351576) to see more about this shoppe.
 
 ![](/images/img_2846 (1).jpg)
 
-* [**Ashlawn Farm Coffee**](https://farmcoffee.com/) **(Old Saybrook, CT)**- I grew up spending summers at the beach in this beautiful town. When they opened this cute coffee shoppe here, I became a little obsessed. It has a peaceful vibe and even a kid's section in the back. It is also right next to the train station, so it is easy to grab a cup before heading to NYC. Check out this[ video](https://vimeo.com/14584375) about how they began.
+* [**Ashlawn Farm Coffee**](https://farmcoffee.com/) **(Old Saybrook, CT)**- I grew up spending summers at the beach in this beautiful town. When they opened this cute coffee shop here, I became a little obsessed. It has a peaceful vibe and even a kid's section in the back. It is also right next to the train station, so it is easy to grab a cup before heading to NYC. Check out this[ video](https://vimeo.com/14584375) about how they began.
 
 ![](/images/img_2859 (1).jpg)
 
@@ -36,7 +36,7 @@ I love coffee, like REALLY love coffee! It all started when I was young. My fami
 
 ![](/images/img_2833 (1).jpg)
 
-* [**Lackawanna Coffee**](http://www.lackawannacoffee.com/) **(Jersey City, NJ)**- I love that this coffee shoppe has a ping pong table! It has such a fun outdoor seating area and they even make turmeric lattes. It is a very hip spot!
+* [**Lackawanna Coffee**](http://www.lackawannacoffee.com/) **(Jersey City, NJ)**- I love that this coffee shop has a ping pong table! It has such a fun outdoor seating area and they even make turmeric lattes. It is a very hip spot!
 
 ![](/images/img_4969 (1).jpg)
 
@@ -44,6 +44,6 @@ I love coffee, like REALLY love coffee! It all started when I was young. My fami
 
 ![](/images/img_2848 (1).jpg)
 
-* [**Chocopain Bakery**](http://www.chocopainbakery.com/) **(Hoboken, NJ)**- This place has always been my go to spot to meet with friends. You can watch them making fresh bread and pastries and I love their chocolate bread and coffee. They even have couches and a play area for kids upstairs. When I go ther,e I feel like I am sitting in a living room in France.
+* [**Chocopain Bakery**](http://www.chocopainbakery.com/) **(Hoboken, NJ)**- This place has always been my go to spot to meet with friends. You can watch them making fresh bread and pastries and I love their chocolate bread and coffee. They even have couches and a play area for kids upstairs. When I go there, I feel like I am sitting in a living room in France.
 
-I am excited to explore even more coffee shoppes around the world. What are your favorite coffee shoppes?
+I am excited to explore even more coffee shops around the world. What are your favorite coffee shops?
