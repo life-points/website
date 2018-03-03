@@ -13,3 +13,5 @@ Their slogan is "Get back to Human." When you enter, you will not find any conve
 It is pretty incredible, because with all of this stuff missing, you can get some delicious real food. I love to get their bowls. I normally get the root vegetable mash with grass fed beef on top. I also love their organic coffee, chocolate, homemade almond milk and juices. Sometimes I will treat myself to one of their grain free muffins. 
 
 They sell breakfast, lunch, dinner, and snacks there and are a market as well. It is a great place to meet with friends, do work, or just people watch. It feels nice to know that you are sitting with a community of health conscious people.
+
+What are your favorite places to go to grab a healthy bite?
