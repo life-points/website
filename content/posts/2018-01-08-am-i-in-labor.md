@@ -36,3 +36,5 @@ Podcasts:
 
 * [Healthy Births Happy Babies](https://itunes.apple.com/us/podcast/healthy-births-happy-babies-prenatal-care-natural-birth/id1033754889?mt=2)
 * [Fear Free Childbirth](https://www.fearfreechildbirth.com/blog/fear-free-childbirth-podcast/)
+
+I would love to hear about your birth story or how you prepared. Feel free to e-mail me at lifepoints.us@gmail.com or write in the comments below.
