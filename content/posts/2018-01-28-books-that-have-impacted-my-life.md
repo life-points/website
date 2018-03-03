@@ -95,3 +95,5 @@ This book taught me to let go of things I do not need or find joy in. When I fir
 I have utilized this book so much, working with kids. It really teaches you so much and many things I applied from this book have worked. I would highly recommend this book to anyone who works with kids or has a kid. 
 
 “Some children can tell you why they’re frightened, angry, or unhappy. For many, however, the question “Why?” only adds to their problem. In addition to their original distress, they must now analyze the cause and come up with a reasonable explanation. Very often children don’t know why they feel as they do. At other times they’re reluctant to tell because they fear that in the adult’s eyes their reason won’t seem good enough. (“For that you’re crying?”) It’s much more helpful for an unhappy youngster to hear, “I see something is making you sad,” rather than to be interrogated with “What happened?” or “Why do you feel that way?” It’s easier to talk to a grown-up who accepts what you’re feeling rather than one who presses you for explanations.”
+
+What books have impacted your life?
