@@ -6,7 +6,7 @@ tags:
   - Health
 draft: false
 ---
-I have always been into natural things, but spending time with my Persian Mother in Law opened my world to an even more natural side of life. There are so many amazing ancient remedies from the Persian culture. Here are some things that I have learned from her. Everything below is quoted from her. It is not medical advice and it is up to you if you want to try it. I have had success with all of these things.
+I have always been into natural things, but spending time with my Persian mother-in-law opened my world to an even more natural side of life. There are so many amazing ancient remedies from the Persian culture. Here are some things that I have learned from her. Everything below is quoted from her. It is not medical advice and it is up to you if you want to try it. I have had success with all of these things.
 
 1. "Eat **Honey, especially raw**!!!  **Honey** is medicine. It can help you when you are feeling faint, because it helps raise your blood sugar. It also helps if you burn yourself, because it has a natural healing power. It can help with heartburn in the night, because it coats the body with a protective layer. Honey and cinnamon mixed together may also help your heart and cholesterol." This one has been the hardest for me, because I don't really like honey for some reason, but it does work.
 2. "**Watermelon** helps clean your kidneys. The white part of it is the most beneficial. Put the white part and pink part of the watermelon in a blender and make a juice with it. It is beneficial when you're sick, because it has vitamin C. Watermelon is considered a cold food. If your body is more on the warm side, it will balance your body out."
@@ -20,9 +20,9 @@ I have always been into natural things, but spending time with my Persian Mother
    Blend together 2 Garlic cloves, 1/2 inch Ginger, 1 Lemon, 1/4 
    cup water. After it is all blended, add raw honey to your cup 
    to sweeten it. "
-10. "**Balance cold and warm foods.** It has nothing to do with whether the food is hot or cold, but it has to do with how it affects your body. If you have a rash, do not have warm foods. If you have a fever, eat more cold foods."
+10. **Balance cold and warm foods.** It has nothing to do with whether the food is hot or cold, but it has to do with how it affects your body. If you have a rash, do not have warm foods. If you have a fever, eat more cold foods."
 
-**Cold foods** :
+_**Cold foods** :_
 
 **Meats**:Turkey
 
@@ -42,7 +42,9 @@ I have always been into natural things, but spending time with my Persian Mother
 
 **Dairy**: Cheese, Cream, Yogurt
 
-**Warm foods:**
+
+
+_**Warm foods:**_
 
 **Meat**: Beef, Chicken, Lamb, Pork
 
