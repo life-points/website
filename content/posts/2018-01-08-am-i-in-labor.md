@@ -1,7 +1,7 @@
 ---
 title: Am I in Labor?
 date: 2018-01-08T15:06:43.463Z
-featured_image: /images/am-i-in-labor.jpg
+featured_image: /images/am-i-in-laborsmall.jpg
 tags:
   - Parenthood
 draft: false
