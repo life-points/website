@@ -8,7 +8,7 @@ draft: false
 ---
 I had heard that you _have_ to have a birth plan. I spent so much time thinking up my ideal birth. I read books on it, took birth classes, researched online, listened to podcasts and asked everyone and their mother what their birth story was. I looked at birth affirmations, listened to the hypnobirthing CD each night while I slept, and took prenatal yoga classes and dreamt of the birth position that I would give birth to my baby boy in. My goal was to have a positive birth and completely natural, drug-free, birth.
 
-I kept getting curious as to what it would feel like when I was labor, so I started asking people how they knew, but almost everyone said, "Oh, you'll know!"
+I kept getting curious as to what it would feel like when I was in labor, so I started asking people how they knew, but almost everyone said, "Oh, you'll know!"
 
 For me, that wasn't the case. This is my birth story...the condensed, censored, version. I will not be using any words to scare you, as I learned in hypnobirthing.
 
