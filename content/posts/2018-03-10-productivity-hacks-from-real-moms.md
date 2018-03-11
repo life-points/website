@@ -26,3 +26,5 @@ Here is what other mom’s are saying…
 **"**I would like to thank the inventor of the Pack and Play for giving me a safe place to contain my child, while I do laundry, cook, and clean." -**Mom of a 7.5 year old**
 
 **"**I like to try and make household chores for him and I enjoyable. I put some music on that we can sing and dance along to. Sometimes I wear him in the baby carrier or put him in his jumper in the same room as me, so I can talk to him about what I’m doing or sing/dance with him, while I go about my tasks. I also try to take advantage of nap times and bedtime to sneak a quick workout in, to do things around the house or to reconnect with my husband. Nursing also allows me to multitask, so that I can read, while he’s cuddling up and eating." **Mom of an 8 month old**
+
+**How do you stay productive during your days? I'd love to know in the comments below.**
