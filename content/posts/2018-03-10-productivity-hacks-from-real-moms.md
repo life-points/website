@@ -7,7 +7,7 @@ tags:
 draft: true
 ---
 It is hard to feel productive as a mom. As I type this, my 5 month old is doing tummy time, by my side, and I am cheering him on. As a mom, you definitely learn to multitask. As a woman who is always thinking up ideas and new goals, including starting this blog,I needed to figure out ways to feel productive during the day. Some days taking a shower is the most productive thing I do. I try to celebrate these small goals and let go of expectations.
-Here are my productivity hacks and some mom friend’s of mine too. 
+Here are my productivity hacks and the ways my mom friends stay productive too. 
 
 My baby normally takes 3 naps. During the first one, I do yoga as soon as I put him down and watch him on the baby monitor. During the second nap, I make coffee and work on a blog or research baby info to learn more about this motherhood thing. During the 3rd nap, I basically eat a snack, because it is normally pretty short. I now try to read while he is breastfeeding and I try to do dishes and food prep while he is playing in his bjorn bouncer seat. My husband does the grocery shopping during the week, which is super helpful. When my husband comes home from work-I fit in a shower. I do laundry while he plays by my side and talk about the clothes, as I fold them. I also try to take walks with him in the stroller with another mom or by myself and use that time to pray.
 
