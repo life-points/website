@@ -4,7 +4,7 @@ date: '2018-03-10T20:17:50-05:00'
 featured_image: /images/daria-shevtsova-411553-unsplash (1).jpg
 tags:
   - Parenthood
-draft: false
+draft: true
 ---
 It is hard to feel productive as a mom. As I type this, my 5 month old is doing tummy time, by my side, and I am cheering him on. As a mom, you definitely learn to multitask. As a woman who is always thinking up ideas and new goals,, including starting this blog, I needed to figure out ways to feel productive during the day. Some days taking a shower is the most productive thing I do. I try to celebrate these small goals and let go of expectations.
 Here are my productivity hacks and some mom friend’s of mine too. 
