@@ -1,6 +1,7 @@
 ---
 title: Productivity Hacks from Real Moms
 date: '2018-03-10T20:17:50-05:00'
+featured_image: /images/daria-shevtsova-411553-unsplash (1).jpg
 tags:
   - Parenthood
 draft: false
