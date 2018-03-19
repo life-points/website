@@ -4,7 +4,7 @@ date: '2018-03-18T21:06:11-04:00'
 featured_image: /images/img_20180317_134232530 (1).jpg
 tags:
   - Food
-draft: true
+draft: false
 ---
 I have been Paleo several times in my life, and it always makes me feel great, but having a baby, I felt I should include grains in my diet. Recently, I realized that Gluten, Soy, and Dairy bother my baby boy and corn bothers me. This makes options for eating out limited. I am so glad I stumbled upon this gem of a place. You will not find any gluten, soy, dairy, or corn here. and everything is organic. It is called, [NewBrook Kitchen & Artisan Market](https://www.newbrookkitchen.com/), and it is located in Westport, CT.
 
