@@ -1,7 +1,7 @@
 ---
 title: Paleo Food Heaven
 date: '2018-03-18T21:06:11-04:00'
-featured_image: /images/img_20180317_134232530 (1).jpg
+featured_image: /images/img_0290 (1) (1).jpg
 tags:
   - Food
 draft: false
