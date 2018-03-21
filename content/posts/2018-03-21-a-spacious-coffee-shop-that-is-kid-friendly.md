@@ -1,5 +1,7 @@
 ---
-title: A Spacious Coffee shop that is Kid Friendly
+title: >-
+  Candlewood Market Coffee and Tea Emporium: A Spacious, Kid Friendly Coffee
+  Shop
 date: '2018-03-21T10:23:59-04:00'
 draft: true
 ---
