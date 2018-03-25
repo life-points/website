@@ -13,7 +13,7 @@ My husband and I are foodies or shall I say “whole foodies” and we absolutel
 
 ![](/images/img_0363 (1).jpg)
 
-* **Fair Trade Organic Bolivian Blend Coffee**- I prefer organic coffee. I like knowing that it hasn’t been treated with pesticides or chemical fertilizers. It also has many nutrients from the soil it grows in. When something is [fair trade](https://www.fairtradecertified.org/), you know that the workers are being treated fairly and paid a decent wage. I drink conventional coffee when I go to coffee shops if they don't have organic, but since most of the time I drink it at home, I make this brand of coffee in the french press and roast the beans fresh, each day. 
+* **Fair Trade Organic Bolivian Blend Coffee**- I prefer organic coffee. I like knowing that it hasn’t been treated with pesticides or chemical fertilizers. It also has many nutrients from the soil it grows in. When something is [fair trade](https://www.fairtradecertified.org/), you know that the workers are being treated fairly and paid a decent wage. I drink conventional coffee when I go to coffee shops, if they don't have organic, but since most of the time I drink it at home, I make this brand of coffee in the french press and roast the beans fresh, each day. 
 
 ![](/images/img_0366 (1).jpg)
 
@@ -25,7 +25,7 @@ My husband and I are foodies or shall I say “whole foodies” and we absolutel
 
 ![](/images/img_0376 (1).jpg)
 
-* **Fair Trade Organic cacao Belgian Dark Chocolate Bar and Unsweetened and Unsulfured Mango**- I try to have these in moderation, but they are a healthy treat to have, when I am craving something sweet. I like this chocolate bar because it doesn’t contain any soy lecithin, which I avoid because there is some debate about whether soy effects the thyroid. The mango is also just pure mango with no added sweetener. I also love their dried prunes, raisins, and dried apricots. Please excuse the half eaten package in the photo above. It is just _that _good!
+* **Fair Trade Organic cacao Belgian Dark Chocolate Bar and Unsweetened and Unsulfured Mango**- I try to have these in moderation, but they are a healthy treat to have, when I am craving something sweet. I like this chocolate bar because it doesn’t contain any soy lecithin, which I avoid, because there is some debate about whether soy effects the thyroid. The mango is also just pure mango with no added sweetener. I also love their dried prunes, raisins, and dried apricots. Please excuse the half eaten package in the photo above. It is just _that_ good!
 
 ![](/images/img_0364 (1).jpg)
 
