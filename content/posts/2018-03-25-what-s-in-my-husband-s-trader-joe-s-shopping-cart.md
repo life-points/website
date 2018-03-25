@@ -29,7 +29,7 @@ My husband and I are foodies or shall I say “whole foodies” and we absolutel
 
 ![](/images/img_0364 (1).jpg)
 
-* **Spices**-I love that Trader Joes has so many spices and these are my favorite ones-Black Peppercorns, Ground Cinnamon, Red Pepper, Red Chili Pepper Flakes, Ground Cumin, and Sea Salt. My absolute favorite is the Everything but the Bagel Sesame Seasoning Blend. I like to sprinkle some on avocado or to add more flavor to a meal I am having. There are so many benefits to spices and they can make typical vegetables and grains taste more flavorful.
+* **Spices**-I love that Trader Joes has so many spices and these are my favorite ones-Black Peppercorns, Ground Cinnamon, Red Pepper, Red Chili Pepper Flakes, Ground Cumin, and Sea Salt. My absolute favorite is the Everything but the Bagel Sesame Seasoning Blend. I like to sprinkle some on avocado or to add more flavor to a meal. There are so many benefits to spices and they can make typical vegetables and grains taste more flavorful.
 
 ![](/images/img_0365 (1).jpg)
 
