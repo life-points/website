@@ -54,3 +54,5 @@ My husband and I are foodies or shall I say “whole foodies” and we absolutel
 ![](/images/img_0370 (1).jpg)
 
 * **Manuka Honey**- This stuff is magical, as well. I have used it for colds, burns on the skin, and blemishes on my skin. You can see more about the benefits[ here](https://draxe.com/manuka-honey-benefits-uses/.).
+
+We also buy a lot of produce-organic kiwis, oranges, bananas, and cherry tomatoes. Sundays is our shopping day! What day do you do your shopping?
