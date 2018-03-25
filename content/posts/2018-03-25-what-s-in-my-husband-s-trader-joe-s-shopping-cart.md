@@ -1,6 +1,7 @@
 ---
 title: What's in my Husband's Trader Joe's Shopping Cart?
 date: '2018-03-25T15:46:08-04:00'
+featured_image: /images/thomas-martinsen-105809-unsplash (1).jpg
 tags:
   - Health
 draft: false
