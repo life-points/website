@@ -37,7 +37,7 @@ My husband and I are foodies or shall I say “whole foodies” and we absolutel
 
 ![](/images/img_0362 (1).jpg)
 
-* **100% Greek kalamata Extra Virgin Olive Oil**- This olive oil tastes absolutely delicious. I love to dip fennel in it or add it to salads. I also sprinkle it on avocado. As an Italian, Olive oil is something I feel it is important to have daily. It has many benefits, as well.
+* **100% Greek Kalamata Extra Virgin Olive Oil**- This olive oil tastes absolutely delicious. I love to dip fennel in it or add it to salads. I also sprinkle it on avocado. As an Italian, Olive Oil is something I feel is important to have daily, even if it is from Greece. It has many benefits, as well.
 
 ![](/images/img_0371 (1).jpg)
 
@@ -45,7 +45,7 @@ My husband and I are foodies or shall I say “whole foodies” and we absolutel
 
 ![](/images/img_0372 (1).jpg)
 
-* **Organic Black Bean Pasta**-This is an easy meal, when I am pressed for time. You make it like regular pasta, except it is made from black beans. I add some tomato sauce and you have yourself an amazing meal.
+* **Organic Black Bean Pasta**-This is an easy meal, when I am pressed for time. It feels like you are eating regular pasta, except it is only made from black beans. I add some tomato sauce and you have yourself an amazing meal.
 
 ![](/images/img_0367 (1).jpg)
 
