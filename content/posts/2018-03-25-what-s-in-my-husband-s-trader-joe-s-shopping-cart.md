@@ -31,11 +31,26 @@ My husband and I are foodies or shall I say “whole foodies” and we absolutel
 
 * **Spices**-I love that Trader Joes has so many spices and these are my favorite ones-Black Peppercorns, Ground Cinnamon, Red Pepper, Red Chili Pepper Flakes, Ground Cumin, and Sea Salt. My absolute favorite is the Everything but the Bagel Sesame Seasoning Blend. I like to sprinkle some on avocado or just to add more flavor to a dish. There are so many benefits to spices and they can make typical bland food taste more flavorful.
 
-
+![](/images/img_0365 (1).jpg)
 
 * **Organic Virgin Coconut Oil**-I cook everything with this oil because it can be cooked with at high temperatures and has a smoking point of 350 degrees farenheiht. It also has so many benefits. I use it on my skin, as well. Here are 77 ways you can use it. https://draxe.com/coconut-oil-uses/
-* 100% Greek kalamata Extra Virgin Olive Oil- This olive oil tastes absolutely delicious. I love to dip fennel in it or add it to salads. I also sprinkle some on my avocado. As an Italian, Olive oil is something I feel it is important to have daily. It has many benefits, as well.
-* Fennel-I grew up eating this and dipping it in Olive oil with black pepper. It is such a delicious, healthy, crunchy snack and is great for breast milk supply. 
-* Organic Black Bean Pasta-This is an easy meal, when I am pressed for time. You make it like regular pasta, except it is made from black beans. I add some tomato sauce and you have yourself a meal.
-* Raw nuts-I think we have bought every raw nut that you could possibly buy from trader joes. I like to add them to my oatmeal or eat them as a snack. Here is an article on the benefits of nuts https://articles.mercola.com/sites/articles/archive/2015/10/19/best-nuts-seeds.aspx
-* Manuka Honey- This stuff is magical, as well. I have used it for colds, burns on the skin, and blemishes on my skin. You can see more about it here https://draxe.com/manuka-honey-benefits-uses/.
+
+![](/images/img_0362 (1).jpg)
+
+* **100% Greek kalamata Extra Virgin Olive Oil**- This olive oil tastes absolutely delicious. I love to dip fennel in it or add it to salads. I also sprinkle some on my avocado. As an Italian, Olive oil is something I feel it is important to have daily. It has many benefits, as well.
+
+![](/images/img_0371 (1).jpg)
+
+* **Fennel**-I grew up eating this and dipping it in Olive oil with black pepper. It is such a delicious, healthy, crunchy snack and is great for breast milk supply. 
+
+![](/images/img_0372 (1).jpg)
+
+* **Organic Black Bean Pasta**-This is an easy meal, when I am pressed for time. You make it like regular pasta, except it is made from black beans. I add some tomato sauce and you have yourself a meal.
+
+![](/images/img_0367 (1).jpg)
+
+* **Raw nuts**-I think we have bought every raw nut that you could possibly buy from trader joes. I like to add them to my oatmeal or eat them as a snack. Here is an article on the benefits of nuts https://articles.mercola.com/sites/articles/archive/2015/10/19/best-nuts-seeds.aspx
+
+![](/images/img_0370 (1).jpg)
+
+* **Manuka Honey**- This stuff is magical, as well. I have used it for colds, burns on the skin, and blemishes on my skin. You can see more about it here https://draxe.com/manuka-honey-benefits-uses/.
