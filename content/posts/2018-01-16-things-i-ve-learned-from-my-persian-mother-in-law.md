@@ -16,10 +16,14 @@ I have always been into natural things, but spending time with my Persian mother
 6. "**Do not drink anything while you are eating food.** Drink water half an hour before or half an hour after your food."
 7. "**Have Ginger, Turmeric, Cinnamon, and Honey** everyday for joint problems or arthritis."
 8. "When you are sick, eat **boiled turnips!"**
-9. **"**When you feel a cold coming on, make a **Madjoon** right away...
-   Blend together 2 Garlic cloves, 1/2 inch Ginger, 1 Lemon, 1/4 
-   cup water. After it is all blended, add raw honey to your cup 
-   to sweeten it. "
+
+![](/images/img_0085 (1).jpg)
+
+   9. **"**When you feel a cold coming on, make a **Madjoon** right away...
+Blend together 2 Garlic cloves, 1/2 inch Ginger, 1 Lemon, 1/4 
+cup water. After it is all blended, add raw honey to your cup 
+to sweeten it. "
+
 10. **Balance cold and warm foods.** It has nothing to do with whether the food is hot or cold, but it has to do with how it affects your body. If you have a rash, do not have warm foods. If you have a fever, eat more cold foods."
 
 _**Cold foods** :_
@@ -42,9 +46,7 @@ _**Cold foods** :_
 
 **Dairy**: Cheese, Cream, Yogurt
 
-
-
-_**Warm foods:**_
+**_Warm foods:_**
 
 **Meat**: Beef, Chicken, Lamb, Pork
 
