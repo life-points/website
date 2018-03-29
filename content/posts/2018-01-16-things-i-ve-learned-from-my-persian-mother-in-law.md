@@ -19,7 +19,7 @@ I have always been into natural things, but spending time with my Persian mother
 
 ![](/images/img_0085 (1).jpg)
 
-   9. **"**When you feel a cold coming on, make a **Madjoon** right away...
+9. **"**When you feel a cold coming on, make a **Madjoon** right away...
 Blend together 2 Garlic cloves, 1/2 inch Ginger, 1 Lemon, 1/4 
 cup water. After it is all blended, add raw honey to your cup 
 to sweeten it. "
