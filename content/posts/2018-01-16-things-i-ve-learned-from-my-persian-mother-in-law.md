@@ -17,7 +17,9 @@ I have always been into natural things, but spending time with my Persian mother
 7. "**Have Ginger, Turmeric, Cinnamon, and Honey** everyday for joint problems or arthritis."
 8. "When you are sick, eat **boiled turnips!"**
 
-![](/images/img_0085 (1).jpg)
+ ![](/images/img_0085 (1).jpg)
+
+ **figure** Madjoon
 
 9. **"**When you feel a cold coming on, make a **Madjoon** right away...
 Blend together 2 Garlic cloves, 1/2 inch Ginger, 1 Lemon, 1/4 
