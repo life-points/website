@@ -3,7 +3,7 @@ title: When It is Hard to "Love Your Body"
 date: '2018-04-05T13:56:04-04:00'
 featured_image: /images/bonnie-kittle-122261-unsplash-1-.jpg
 tags:
-  - Parenting
+  - Parenthood
 draft: false
 ---
 I have always admired the "Love Your Body" movement and celebrating your own size! This became harder during my pregnancy journey.
