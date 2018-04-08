@@ -1,7 +1,7 @@
 ---
 title: 'How Running A Marathon Reminded Me I''m Capable of Anything {Guest Blog}'
 date: '2018-04-08T09:44:27-04:00'
-featured_image: /images/bradley-wentzel-604970-unsplash-1-.jpg
+featured_image: /images/image1-1-.jpeg
 tags:
   - Inspiration
 draft: true
