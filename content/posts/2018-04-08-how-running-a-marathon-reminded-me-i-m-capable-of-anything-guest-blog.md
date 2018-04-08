@@ -4,7 +4,7 @@ date: '2018-04-08T09:44:27-04:00'
 featured_image: /images/bradley-wentzel-604970-unsplash-1-.jpg
 tags:
   - Inspiration
-draft: false
+draft: true
 ---
 Guest post by Aamira Martinez
 
