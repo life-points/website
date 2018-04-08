@@ -4,7 +4,7 @@ date: '2018-04-08T09:44:27-04:00'
 featured_image: /images/image1-1-.jpeg
 tags:
   - Inspiration
-draft: true
+draft: false
 ---
 Guest post by Aamira Martinez
 
@@ -26,4 +26,4 @@ I’m not going to lie, at first it was awful. No upbeat pop music to get me go
 
 Nowadays, whenever I feel fear or insecurity, I’ll whisper to myself, if you can run a marathon, you can do anything.
 
-_** To see more of Aamira's journeys, follow her on **_ [_**instagram **_](https://www.instagram.com/aamiramartinez/)
+**To see more of Aamira's journeys, follow her on** [**instagram**](https://www.instagram.com/aamiramartinez/)
