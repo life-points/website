@@ -7,27 +7,29 @@ I love learning about health and wellness. As I started my journey learning abou
 
 The skin is the largest organ and absorbs everything you put on it. People use many products on their bodies everyday and many of these products are filled with harmful chemicals that are carcinogens, toxic to the reproductive system, and known to disrupt the endocrine system, according to the environmental working group. When looking for natural products, I go to http://www.ewg.org/skindeep/ and I try to find the products with a low hazard score. I set out to find natural products and through trial and error, these are some of the natural products I use and love. Most of them are rated a 1.
 
-**Toothpaste:** Dr. Bronner's Peppermint Toothpaste This toothpaste feels soft on my teeth. I never knew that was a thing, until I tried it. I love the minty flavor.
+**Toothpaste:** [Dr. Bronner's Peppermint Toothpaste](https://amzn.to/2ERsxjE) This toothpaste feels soft on my teeth. I never knew that was a thing, until I tried it. I love the minty flavor.
 
-**Soap**: Dr. Bronners Organic Castile Soap I use the peppermint or hemp brand and it suds up still, which is important to me.
+**Soap**: [Dr. Bronners Organic Castile Soap](https://amzn.to/2vk9XkP) I use the peppermint and hemp brand and it suds up still, which is important to me.
 
-**Makeup**: Aunaturalecosmetics I don't wear too much makeup, but I use their lipstick, foundation, and eyeliner. I have the ruby lipstick, sand cream foundation, and eyeliner pencil in night. It is expensive, but lasts a surprisingly long time.
+**Makeup**: [Aunaturalecosmetics ](https://www.aunaturalecosmetics.com/?gclid=Cj0KCQjwttbWBRDyARIsAN8zhbK0zTnI-9mPvxUy8kENL_4HKSlH-sC38zfHmwgzVTdlWj4VYDHgpj4aAkQpEALw_wcB)I don't wear too much makeup, but I use their lipstick, foundation, and eyeliner. I have the ruby lipstick, sand cream foundation, and eyeliner pencil in night. It is on the pricy side, but lasts a surprisingly long time.
 
-**Mascara:** I get my mascara from cvs and it is a really natural one. Physicians Formula Mascara This brand has many natural products.
+**Mascara:** I get my mascara from CVS and it is a  natural one. [Physicians Formula Mascara](https://amzn.to/2vsebad) is the one I use. 
 
-**Facial cleanser:** I only use jojoba oil from trader joes to wash my face or if I don’t wear makeup, just water and if some pimples pop up, I dab a little Australian Tee Tree Oil on them and they go away fairly quickly.
+**Facial cleanser:** I only use [jojoba oil](https://amzn.to/2qEQRAs) from Trader Joes to wash my face or if I don’t wear makeup, I only rinse it with water. If some pimples pop up, I dab a little [Australian Tee Tree Oil](https://amzn.to/2qFJzvZ) on them and they go away fairly quickly.
 
-**Lotion:** I have really dry hands, so sometimes I will put coconut oil  or olive oil on them or I use badger balm It works really well! 
+**Lotion:** I have really dry hands, so sometimes I will put coconut oil  or olive oil on them or I use [badger balm](https://amzn.to/2JQiu2h) It works really well! 
 
-**Stretch Marks:** I only used coconut oil this whole pregnancy. Unfortunately, I don’t think I used it enough so I do have some, but I have heard it works wonders for other people.
+**Stretch Marks:** I only used coconut oil this whole pregnancy. Unfortunately, I don’t think I used it enough, so I do have some, but I have heard it works wonders for other people.
 
-**Shampoo/Conditioner:** I really love this product. I mix and match with the shampoo and conditioner to experience two great scents. Acure Organics Moroccan Shampoo  and Acure Organics Pure Mint and Echinacea Conditioner
+**Shampoo/Conditioner:** I really love this product. I mix and match with the shampoo and conditioner to experience two great scents. [Acure Organics Moroccan Shampoo](https://amzn.to/2H6z0gz)  and [Acure Organics Pure Mint and Echinacea Conditioner](https://amzn.to/2qFx1oC)
 
-**Deodorant**: I used to use this which worked well Thai-Deodorant-Stone-Crystal-Deodorant Now I make my own. E-mail me at lifepoints.us@gmail.com for the recipe.
+**Deodorant**: I used to use this which worked well- [Thai Deodorant Stone Crystal Deodorant](https://amzn.to/2qETzFS) Now I make my own. E-mail me at lifepoints.us@gmail.com for the recipe.
 
-Bug Spray: For some reason, bugs are always attracted to me, so I needed to find a non toxic bug spray. I found this- Badger Anti-Bug Spray I honestly haven’t had a chance to use it yet, so I cannot say how well it works.
+**Lip Balm:** I really like [Dr. Bronner's Lip Balm](https://amzn.to/2EUdoON)
 
-Perfume: I don’t wear it, but if I want a little scent, I just wear essential oils. What are your favorite essential oils to wear?
+**Bug Spray:** For some reason, bugs are always attracted to me, so I needed to find a non toxic bug spray. I found this- [Badger Anti-Bug Spray](https://amzn.to/2qETHVS) I honestly haven’t had a chance to use it yet, so I cannot say how well it works.
+
+**Perfume:** I don’t wear it, but if I want a little scent, I just wear essential oils. What are your favorite essential oils to wear?
 
 Tampons: This may be TMI, but I love this brand, Lola Tampons. It is a great company by women, for women transforming tampons. The Tampons are 100% cotton. If you sign up with my code you get $5 off. Did you know that the FDA doesn't require tampon brands to disclose a comprehensive list of ingredients, so most of them don't. I feel so much better, knowing what I am putting in my body.
 
