@@ -31,26 +31,24 @@ The skin is the largest organ and absorbs everything you put on it. People use m
 
 **Perfume:** I don’t wear it, but if I want a little scent, I just wear essential oils. What are your favorite essential oils to wear?
 
-Tampons: This may be TMI, but I love this brand, Lola Tampons. It is a great company by women, for women transforming tampons. The Tampons are 100% cotton. If you sign up with my code you get $5 off. Did you know that the FDA doesn't require tampon brands to disclose a comprehensive list of ingredients, so most of them don't. I feel so much better, knowing what I am putting in my body.
+**Tampons:** This may be TMI, but I love this brand, Lola Tampons. It is a great company by women, for women transforming tampons. The Tampons are 100% cotton. If you sign up with my [code](https://goo.gl/v3dBnm), you'll get $5 off. Did you know that the FDA doesn't require tampon brands to disclose a comprehensive list of ingredients, so most of them don't? I feel so much better, knowing what I am putting in my body.
 
-Cleaners: I just started making my own with white vinegar, DR-BRONNERS-Pure-Castile-Soap, and essential oils and water and it smells so nice and works well. When I am too busy to make my own, I buy Attitude all purpose cleaner for around the house and Attitude Windows and Mirror Cleaner for our mirrors.
+**Cleaners:** I just started making my own with white vinegar, [Dr Bronner's Pure Castile Soap](https://amzn.to/2HG56wW), and essential oils (lemon) and water and it smells nice and works well. When I am too busy to make my own, I buy [Attitude all purpose cleaner ](https://amzn.to/2qD9AMs)for around the house and [Attitude Windows and Mirror](https://amzn.to/2HGNRLV) Cleaner for our mirrors.
 
-Sunscreen: I tried many and was determined to find one I liked, that actually worked and didn’t make me feel too sticky. Goddess Garden Organics Natural Suncreen does the trick.
+**Sunscreen**: I tried so many and was determined to find one that actually worked and didn’t make me feel too sticky. [Goddess Garden Organics Natural Suncreen](https://amzn.to/2JSAxEJ) does the trick.
 
-Manuka Honey: It has lots of benefits. I use it when I am sick, for burns, for skin etc. I get mine from trader joes and use this brand, but there are so many out there. Here is a video with more about it and what number you need for what you are using it for.
+**Manuka Honey:** It has lots of benefits. I use it when I am sick, for burns, for skin etc. I get mine from trader joes and use this[ brand](https://amzn.to/2qFMe8X), but there are so many out there. [Here](https://www.youtube.com/watch?v=k_MUon6mApU) is a video with more about it and what number you need for what you are using it for.
 
-Hair: I don’t use products on my hair, but if I feel it is a bit frizzy, I use Organic Argan Oil from Trader Joes.
+**Hair:** I don’t use products on my hair, but if I feel it is a bit frizzy, I use [Organic Argan Oil](https://amzn.to/2qFMF35) from Trader Joes.
 
-Medicine: I really try to avoid medicine, if I can. When I start to feel a cold coming on I drink Ginger Tea with Apple Cider Vinegar, Oil of Oregano, Raw Honey and Cayenne Pepper and that normally does the trick. I make bone broth too and make sure to have lots of garlic, onion, and lemon.  I also make a Madjoon (See my blog post for that recipe).
+**Medicine:** I really try to avoid medicine, if I can. When I start to feel a cold coming on I mix Ginger Tea with Apple Cider Vinegar, Oil of Oregano, Raw local Honey and Cayenne Pepper and that normally does the trick. I make bone broth too and make sure to have lots of garlic, onion, and lemon.  I also make a Madjoon (See my [blog ](https://www.lifepoints.net/posts/2018-01-16-things-i-ve-learned-from-my-persian-mother-in-law/)post for that recipe).
 
-Detergent: We recently started using this and I love it and a little bit goes a long way. Biokleen Laundry Detergent
+**Detergent:** We recently started using this and I love it and a little bit goes a long way-[Biokleen Laundry Detergent](https://amzn.to/2qGxnv0)
 
-Dish Detergent: Seventh Generation Dishwasher Detergent Packs  for our dishwasher or Attitude Baby Dishwashing Liquid for dishes, even though it is designed for baby safety, it works great to clean my stuff too.
+**Dish Detergent:** [Seventh Generation Dishwasher Detergent Packs ](https://amzn.to/2HG4rLZ) for our dishwasher or [Attitude Baby Dishwashing Liquid ](https://amzn.to/2qFhB3M)for dishes, even though it is designed for babies, it works great to clean my stuff too.
 
-Hand Soap: Dr. Bronner's Sugar Pump hand soap I couldn’t find this on ewg, so I am not sure the rating, but it feels so nice on your hands and you can even wash your face with it.
+**Hand Soap:** [Dr. Bronner's Sugar Pump Hand Soap](https://amzn.to/2qIiSXT) I couldn’t find this on[ EWG](https://www.ewg.org/skindeep/#.WtYeTS7wapo), so I am not sure the rating, but it feels so nice on your hands and you can even wash your face with it. A little bit goes a long way.
 
-Toilet Bowl Cleaner: I just discovered this the other day and was totally amazed. I just sprinkle baking soda inside the toilet and leave it on for 5 minutes and then scrub it with a toilet bowl brush and it is sparkling clean.
+**Toilet Bowl Cleaner:** I just discovered this the other day and was totally amazed. I just sprinkle baking soda inside the toilet and leave it on for 5 minutes and then scrub it with a toilet bowl brush and it is sparkling clean.
 
 There are still so many natural products I am still on a journey to discover, but I hope these helped!! Let me know if you discover any good natural products too!
-
-The information in this blog has not been evaluated by the FDA and is not intended to diagnose, treat, prevent, or cure any disease.
