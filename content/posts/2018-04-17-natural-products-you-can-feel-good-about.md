@@ -8,13 +8,13 @@ I have a passion for learning about health and wellness. As I started discoverin
 
 The skin is the largest organ and absorbs everything you put on it. People use many products on their bodies everyday and many of these products are filled with harmful chemicals that are carcinogens, toxic to the reproductive system, and known to disrupt the endocrine system, according to the environmental working group. 
 
-When looking for natural products, I go to [EWG ](http://www.ewg.org/skindeep/)and I try to find the products with a low hazard score. I set out to find natural products and through trial and error, these are some of the natural products I use and love. Most of them are rated a 1. It has taken me a few years to come up with this list and I hope you find it informative.
+When looking for natural products, I go to [EWG ](http://www.ewg.org/skindeep/)and I try to find the products with a low hazard score. I set out to find natural products and through trial and error, these are some of the natural products I use regularly and love. Most of them are rated a 1. It has taken me a few years to come up with this list and I hope you find it informative.
 
 **Toothpaste:** [Dr. Bronner's Peppermint Toothpaste](https://amzn.to/2ERsxjE) This toothpaste feels soft on my teeth. I never knew that was a thing, until I tried it. I love the minty flavor.
 
 **Soap**: [Dr. Bronners Organic Castile Soap](https://amzn.to/2vk9XkP) I use the Peppermint and Hemp brand and it still suds up, which is important to me.
 
-**Makeup**: [Aunaturalecosmetics ](https://www.aunaturalecosmetics.com/?gclid=Cj0KCQjwttbWBRDyARIsAN8zhbK0zTnI-9mPvxUy8kENL_4HKSlH-sC38zfHmwgzVTdlWj4VYDHgpj4aAkQpEALw_wcB)I don't wear too much makeup, but when I do, I go with their products. I use their lipstick, foundation, and eyeliner. I have the Ruby lipstick, Sand Cream foundation, and eyeliner pencil in Night. It is on the pricey side, but it lasts a surprisingly long time.
+**Makeup**: [Aunaturalecosmetics ](https://www.aunaturalecosmetics.com/?gclid=Cj0KCQjwttbWBRDyARIsAN8zhbK0zTnI-9mPvxUy8kENL_4HKSlH-sC38zfHmwgzVTdlWj4VYDHgpj4aAkQpEALw_wcB)I don't wear too much makeup, but when I do, I go with their products. I use their lipstick, foundation, and eyeliner. I have the Ruby lipstick, Sand Cream foundation, and eyeliner pencil in Night. It is on the pricey side, but it lasts a surprisingly long time. I love that they are part of the clean beauty revolution.
 
 **Mascara:** I get my mascara from CVS and it is a  natural one. [Physicians Formula Mascara](https://amzn.to/2vsebad) is the one I use.  Somehow I always get coupons for a big discount on it. Subscribe to the CVS e-mails and you can save a lot.
 
@@ -24,11 +24,11 @@ When looking for natural products, I go to [EWG ](http://www.ewg.org/skindeep/)a
 
 **Stretch Marks:** I only used coconut oil this whole pregnancy. Unfortunately, I don’t think I used it enough, so I do have some, but I have heard it works wonders for other people.
 
-**Shampoo/Conditioner:** I really love this product. I mix and match with the shampoo and conditioner to experience two great scents. [Acure Organics Moroccan Shampoo](https://amzn.to/2H6z0gz)  and [Acure Organics Pure Mint and Echinacea Conditioner](https://amzn.to/2qFx1oC)
+**Shampoo/Conditioner:** I really love this product. I mix and match the shampoo and conditioner to experience two great scents. [Acure Organics Moroccan Shampoo](https://amzn.to/2H6z0gz)  and [Acure Organics Pure Mint and Echinacea Conditioner](https://amzn.to/2qFx1oC)
 
-**Deodorant**: I used to use this which worked well- [Thai Deodorant Stone Crystal Deodorant](https://amzn.to/2qETzFS) Now I make my own. E-mail me at lifepoints.us@gmail.com for the recipe.
+**Deodorant**: I used to use this which worked well- [Thai Deodorant Stone Crystal Deodorant](https://amzn.to/2qETzFS) Now I make my own deodorant. E-mail me at lifepoints.us@gmail.com for the recipe.
 
-**Lip Balm:** I really like [Dr. Bronner's Lip Balm](https://amzn.to/2EUdoON)
+**Lip Balm:** I really like [Dr. Bronner's Lip Balm](https://amzn.to/2EUdoON) It makes my lips soft.
 
 **Bug Spray:** For some reason, bugs are always attracted to me, so I needed to find a non toxic bug spray. I found this- [Badger Anti-Bug Spray](https://amzn.to/2qETHVS) I honestly haven’t had a chance to use it yet, so I cannot say how well it works.
 
@@ -40,7 +40,7 @@ When looking for natural products, I go to [EWG ](http://www.ewg.org/skindeep/)a
 
 **Sunscreen**: I tried so many and was determined to find one that actually worked and didn’t make me feel too sticky. [Goddess Garden Organics Natural Suncreen](https://amzn.to/2JSAxEJ) does the trick.
 
-**Manuka Honey:** It has lots of benefits. I use it when I am sick, for burns, for skin etc. I get mine from trader joes and use this[ brand](https://amzn.to/2qFMe8X), but there are so many out there. [Here](https://www.youtube.com/watch?v=k_MUon6mApU) is a video with more about it and what number you need for what you are using it for.
+**Manuka Honey:** It has lots of benefits. I use it when I am sick, for burns, for skin etc. I get mine from Trader joes and use this[ brand](https://amzn.to/2qFMe8X), but there are so many out there. [Here](https://www.youtube.com/watch?v=k_MUon6mApU) is a video with more about it and what number you need for what you are using it for.
 
 **Hair:** I don’t use products on my hair, but if I feel it is a bit frizzy, I use [Organic Argan Oil](https://amzn.to/2qFMF35) from Trader Joes.
 
