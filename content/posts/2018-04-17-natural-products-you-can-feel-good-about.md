@@ -2,7 +2,9 @@
 title: Natural Products You Can Feel GOOD About
 date: '2018-04-17T12:24:27-04:00'
 featured_image: /images/aditya-saxena-410663-unsplash-1-.jpg
-draft: true
+tags:
+  - Health
+draft: false
 ---
 I have a passion for learning about health and wellness. As I started discovering what foods felt best for my body through research and trial and error, I also started thinking about not just what I put inside my body, but what goes on the outside of my body. My skin was really breaking out and my hair was falling out and I needed some answers. As I started changing the food I eat, and what I put on my body, it helped my skin clear up, my hair to get fuller and helped me feel better overall.
 
@@ -54,4 +56,4 @@ When looking for natural products, I go to [EWG ](http://www.ewg.org/skindeep/)a
 
 **Toilet Bowl Cleaner:** I just discovered this the other day and was totally amazed. I just sprinkle baking soda inside the toilet and leave it on for 5 minutes and then scrub it with a toilet bowl brush and it is sparkling clean.
 
-There are still so many natural products I am still on a journey to discover, but I hope these helped!! Let me know if you discover any good natural products too!
+There are still so many natural products I am still on a journey to discover, but I hope these helped!! What are your favorite natural products?
