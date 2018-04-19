@@ -36,7 +36,7 @@ When looking for natural products, I go to [EWG ](http://www.ewg.org/skindeep/)a
 
 **Perfume:** I don’t wear it, but if I want a little scent, I just wear essential oils. What are your favorite essential oils to wear?
 
-**Nail Polish: **I just discovered this about a month ago, when I decided it was time to paint my toes. Being a yogi, I often am looking at them. I still went to the nail salon for a pedicure, but handed them [Zoya Nail Polish in Dita ](https://amzn.to/2qJDj6B)and surprisingly it lasted longer than when I use the polish they have at the salon. For a non toxic nail polish, it looks great.
+**Nail Polish:** I just discovered this about a month ago, when I decided it was time to paint my toes. Being a yogi, I often am looking at them. I still went to the nail salon for a pedicure, but handed them [Zoya Nail Polish in Dita ](https://amzn.to/2qJDj6B)and surprisingly it lasted longer than when I use the polish they have at the salon. For a non toxic nail polish, it looks great.
 
 **Tampons:** This may be TMI, but I love this brand, Lola Tampons. It is a great company by women, for women, transforming tampons. The Tampons are 100% cotton. If you sign up with my [code](https://goo.gl/v3dBnm), you'll get $5 off. Did you know that the FDA doesn't require tampon brands to disclose a comprehensive list of ingredients, so most of them don't. I feel so much better, knowing what I am putting in my body.
 
