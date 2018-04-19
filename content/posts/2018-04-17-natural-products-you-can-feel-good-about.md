@@ -16,7 +16,7 @@ When looking for natural products, I go to [EWG ](http://www.ewg.org/skindeep/)a
 
 **Soap**: [Dr. Bronners Organic Castile Soap](https://amzn.to/2vk9XkP) I use the Peppermint and Hemp brand and it still suds up, which is important to me.
 
-**Makeup**: [Aunaturalecosmetics ](https://www.aunaturalecosmetics.com/?gclid=Cj0KCQjwttbWBRDyARIsAN8zhbK0zTnI-9mPvxUy8kENL_4HKSlH-sC38zfHmwgzVTdlWj4VYDHgpj4aAkQpEALw_wcB)I don't wear too much makeup, but when I do, I go with their products. I use their lipstick, foundation, and eyeliner. I have the Ruby lipstick, Sand Cream foundation, and eyeliner pencil in Night. It is on the pricey side, but it lasts a surprisingly long time. I love that they are part of the clean beauty revolution.
+**Makeup**: [Au Naturale Cosmetics ](https://www.aunaturalecosmetics.com/?gclid=Cj0KCQjwttbWBRDyARIsAN8zhbK0zTnI-9mPvxUy8kENL_4HKSlH-sC38zfHmwgzVTdlWj4VYDHgpj4aAkQpEALw_wcB)I don't wear too much makeup, but when I do, I go with their products. I use their lipstick, foundation, and eyeliner. I have the Ruby lipstick, Sand Cream foundation, and eyeliner pencil in Night. It is on the pricey side, but it lasts a surprisingly long time. I love that they are part of the clean beauty revolution.
 
 **Mascara:** I get my mascara from CVS and it is a  natural one. [Physicians Formula Mascara](https://amzn.to/2vsebad) is the one I use.  Somehow I always get coupons for a big discount on it. Subscribe to the CVS e-mails and you can save a lot.
 
