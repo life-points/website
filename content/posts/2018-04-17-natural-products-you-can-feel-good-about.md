@@ -22,7 +22,7 @@ When looking for natural products, I go to [EWG ](http://www.ewg.org/skindeep/)a
 
 **Facial cleanser:** I only use [Jojoba Oil](https://amzn.to/2qEQRAs) from Trader Joes to wash my face. When I don’t wear makeup, I only rinse it with water. If some pimples pop up, I dab a little [Australian Tee Tree Oil](https://amzn.to/2qFJzvZ) on them and they go away fairly quickly.
 
-**Lotion:** I have really dry hands, so sometimes I will put coconut oil or olive oil on them. If they get really dry, I use [badger balm](https://amzn.to/2JQiu2h). It works really well! 
+**Lotion:** I have really dry hands, so sometimes I will put coconut oil or olive oil on them. If they get really dry, I use [Badger Balm](https://amzn.to/2JQiu2h). It works really well! 
 
 **Stretch Marks:** I only used coconut oil this whole pregnancy. Unfortunately, I don’t think I used it enough, so I do have some, but I have heard it works wonders for other people.
 
