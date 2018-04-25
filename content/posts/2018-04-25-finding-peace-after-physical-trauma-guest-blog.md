@@ -4,7 +4,7 @@ date: '2018-04-25T14:21:45-04:00'
 featured_image: /images/artem-kovalev-86365-unsplash-1-.jpg
 tags:
   - Inspiration
-draft: true
+draft: false
 ---
 **I am thankful to my dear friend, Cynthia, for being brave and sharing her story of her traumatic brain injury below. Cynthia is an passionate art teacher, talented artist, and long time vegetarian. Below you will see how she has learned from her journey and risen above it.**
 
