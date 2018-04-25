@@ -6,7 +6,7 @@ tags:
   - Inspiration
 draft: false
 ---
-**I am thankful to my dear friend, Cynthia, for being brave and sharing her story of her traumatic brain injury below. Cynthia is an passionate art teacher, talented artist, and long time vegetarian. Below you will see how she has learned from her journey and risen above it.**
+**I am thankful to my dear friend, Cynthia, for bravely sharing her story of her traumatic brain injury below. Cynthia is a passionate art teacher, talented artist, and long time vegetarian. Below you will see how she has learned from her long journey and risen above it.**
 
 In October of 2016, I suffered a traumatic brain injury after slipping in a stairwell in my apartment building. After the initial shock of realizing that I had just fallen down a flight of stairs, I thought to myself, “I’m going to be ok. This fall will probably amount to nothing and I’ll take a day off from work tomorrow and return on Monday”. A nice thought, but unfortunately, as I have learned over the past 19 months, that was not the case. 
 
