@@ -1,6 +1,7 @@
 ---
 title: Natural Baby Products you can FEEL GOOD about
 date: '2018-06-01T16:20:07-04:00'
+featured_image: /images/dakota-corbin-243775-unsplash-1-.jpg
 tags:
   - Parenthood
 draft: true
