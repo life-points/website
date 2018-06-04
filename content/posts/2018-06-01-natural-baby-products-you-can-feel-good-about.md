@@ -30,8 +30,10 @@ Diaper Cream: **[Baby Mantra Natural Diaper Rash Ointment](https://amzn.to/2Jkh4
 
 **Dishwashing liquid:** [Attitude Baby Bottle and Dishwashing Liquid](https://amzn.to/2JmgVvr)-For his pacifiers and bottles and teethers. 
 
-**Baby Play Mats-**
+**Baby Play Mats- **[Cream Haus Folding Play Mat](http://www.creamhaus.us/?aff=21)-It took me foreeeeever to find a mat for my baby that I felt good about. I researched the most nontoxic one, free from PVC, BPA, formamide, phthalates, fire retardants, and harmful VOCs and finally found this one!!! It is also certified by oeko-tex. ** **I wouldn’t have ever looked this much into a mat, but when we ordered other popular brands they had toxic smells that were giving me a headache-let alone my baby, so that’s when I investigated! This mat is more expensive than the others, but my baby is moving so much and it’s thick enough to cushion his falls!  Plus my husband already fell asleep on it and I’ve been doing some yoga on it!!
 
-**Travel Crib-**
+\    [The play gym by love every baby ](https://amzn.to/2LYLdmh)- This is a smaller mat, that you can put on top of the [cream haus](http://www.creamhaus.us/?aff=21). My baby learned so much from this. It has 100% baby-safe materials, FSC-certified wood and is made with organic cotton. I love that it helps your baby's physical, cognitive, visual, and  motor learning. It also gives you activity options, based on their development.        
+
+**Travel Crib-**[Lotus Everywhere Travel Crib](http://guavafamily.refr.cc/nicoledonofrio)- This crib is amazing. It is easy to fold up to take whenever you travel anywhere. It's already been to Gramma's house and to NYC.  I love that it is non-toxic, [green guard certified](http://greenguard.org/en/index.aspx), has no flame retardants, has a clear, breathable mesh, and has a little opening so you can even lay with your baby. If you use my [discount code,](http://guavafamily.refr.cc/nicoledonofrio) you will receive a free cotton sheet when you purchase a travel crib.
 
 I hope this list helps you find some great natural products for your baby.  I would love to hear about your favorite baby products in the comments below.
