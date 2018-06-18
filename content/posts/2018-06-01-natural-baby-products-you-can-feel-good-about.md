@@ -6,7 +6,7 @@ tags:
   - Parenthood
 draft: false
 ---
-I am always trying to figure out the healthiest things to put on my body and in my body, so when it came to my baby, I was even more concerned! Here are my ten favorite natural products to use on my baby and a few products I feel are safe for baby to be on. Everything on my list is rated between a 1 and a 2 on the environmental working group website. I did a lot of research and my baby loves all of these products and I feel good about them too.
+I am always trying to figure out the healthiest things to put on my body and in my body, so when it came to my baby, I was even more concerned! Here are my favorite natural products to use on my baby and a few products I feel are safe for baby to be on. Everything on my list is rated between a 1 and a 2 on the environmental working group website. I did a lot of research and my baby loves all of these products and I feel good about them too.
 
 **Wipes:** [Water Wipes](https://amzn.to/2JloiDw)- These cleanup numero 2 very well and are made of just water and a little fruit extract. 
 
