@@ -4,14 +4,14 @@ date: '2018-06-01T16:20:07-04:00'
 featured_image: /images/dakota-corbin-243775-unsplash-1-.jpg
 tags:
   - Parenthood
-draft: true
+draft: false
 ---
 I am always trying to figure out the healthiest things to put on my body and in my body, so when it came to my baby, I was even more concerned! Here are my ten favorite natural products to use on my baby and a few products I feel are safe for baby to be on. Everything on my list is rated between a 1 and a 2 on the environmental working group website. I did a lot of research and my baby loves all of these products and I feel good about them too.
 
 **Wipes:** [Water Wipes](https://amzn.to/2JloiDw)- These cleanup numero 2 very well and are made of just water and a little fruit extract. 
 
 **
-Lotion:** [Earth Mama Baby Angel Calming Lavender Lotion](https://amzn.to/2LeQc1a)- This has such a calming effect on the baby and is so smooth. I even use it for me, from time to time. I try to use it in all of his creases on his neck and have also used it for diaper rash. I also like using olive oil on his head for his cradle cap and on his body too.
+Lotion:** [Earth Mama Baby Angel Calming Lavender Lotion](https://amzn.to/2LeQc1a)- This has such a calming effect on the baby and is so smooth. I even use it for me, from time to time. I try to use it in all of his creases on his neck and have also used it for diaper rash. I also like using olive oil on his head for his cradle cap and on his body too. People say my baby's hair is so long and I credit the olive oil for this.
 
 **
 Diaper Cream: **[Baby Mantra Natural Diaper Rash Ointment](https://amzn.to/2Jkh4PT)-This stuff is AMAZING! It clears up diaper rash super fast and is great for baby. It even helps him do numero 2. I also love that it is made with plant based ingredients. The only thing is that you only get 3.4 oz of it in a container, but a little bit goes a long way. 
