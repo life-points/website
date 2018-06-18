@@ -10,11 +10,9 @@ I am always trying to figure out the healthiest things to put on my body and in 
 
 **Wipes:** [Water Wipes](https://amzn.to/2JloiDw)- These cleanup numero 2 very well and are made of just water and a little fruit extract. 
 
-**
-Lotion:** [Earth Mama Baby Angel Calming Lavender Lotion](https://amzn.to/2LeQc1a)- This has such a calming effect on the baby and is so smooth. I even use it for me, from time to time. I try to use it in all of his creases on his neck and have also used it for diaper rash. I also like using olive oil on his head for his cradle cap and on his body too. People say my baby's hair is so long and I credit the olive oil for this.
+**Lotion:** [Earth Mama Baby Angel Calming Lavender Lotion](https://amzn.to/2LeQc1a)- This has such a calming effect on the baby and is so smooth. I even use it for me, from time to time. I try to use it in all of his creases on his neck and have also used it for diaper rash. I also like using olive oil on his head for his cradle cap and on his body too. People say my baby's hair is so long and I credit the olive oil for this.
 
-**
-Diaper Cream: **[Baby Mantra Natural Diaper Rash Ointment](https://amzn.to/2Jkh4PT)-This stuff is AMAZING! It clears up diaper rash super fast and is great for baby. It even helps him do numero 2. I also love that it is made with plant based ingredients. The only thing is that you only get 3.4 oz of it in a container, but a little bit goes a long way. 
+**Diaper Cream:** [Baby Mantra Natural Diaper Rash Ointment](https://amzn.to/2Jkh4PT)-This stuff is AMAZING! It clears up diaper rash super fast and is great for baby. It even helps him do numero 2. I also love that it is made with plant based ingredients. The only thing is that you only get 3.4 oz of it in a container, but a little bit goes a long way. 
 
 **Diapers:** [Bambo Nature Diapers](https://amzn.to/2xG9fjc)-In the beginning, we were using pampers, huggies, and luvs, but I really wanted to find a natural brand. These actually hold up better for numero 2 and are really soft.. I also noticed that he doesn’t have diaper rash as much with these. 
 
@@ -30,7 +28,7 @@ Diaper Cream: **[Baby Mantra Natural Diaper Rash Ointment](https://amzn.to/2Jkh4
 
 **Dishwashing liquid:** [Attitude Baby Bottle and Dishwashing Liquid](https://amzn.to/2JmgVvr)-For his pacifiers and bottles and teethers.
 
-**Baby Play Mats- **[Cream Haus Folding Play Mat](http://www.creamhaus.us/?aff=21)-It took me foreeeeever to find a mat for my baby that I felt good about. I researched the most nontoxic one, free from PVC, BPA, formamide, phthalates, fire retardants, and harmful VOCs and finally found this one!!! It is also certified by oeko-tex. \*\* \*\*I wouldn’t have ever looked this much into a mat, but when we ordered other popular brands they had toxic smells that were giving me a headache-let alone my baby, so that’s when I investigated! This mat is more expensive than the others, but my baby is moving so much and it’s thick enough to cushion his falls!  Plus my husband already fell asleep on it and I’ve been doing some yoga on it!!
+**Baby Play Mats-** [Cream Haus Folding Play Mat](http://www.creamhaus.us/?aff=21)-It took me foreeeeever to find a mat for my baby that I felt good about. I researched the most nontoxic one, free from PVC, BPA, formamide, phthalates, fire retardants, and harmful VOCs and finally found this one!!! It is also certified by oeko-tex. \*\* \*\*I wouldn’t have ever looked this much into a mat, but when we ordered other popular brands they had toxic smells that were giving me a headache-let alone my baby, so that’s when I investigated! This mat is more expensive than the others, but my baby is moving so much and it’s thick enough to cushion his falls!  Plus my husband already fell asleep on it and I’ve been doing some yoga on it!!
 
  [The play gym by love every baby ](http://lovevery.refr.cc/lifepointsus)- This is a smaller mat, that you can put on top of the [cream haus](http://www.creamhaus.us/?aff=21). My baby learned so much from this. It has 100% baby-safe materials, FSC-certified wood and is made with organic cotton. I love that it helps your baby's physical, cognitive, visual, and  motor learning. It also gives you activity options, based on their development.        
 
