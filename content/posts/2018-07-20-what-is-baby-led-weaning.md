@@ -1,6 +1,7 @@
 ---
 title: What is Baby Led Weaning?
 date: '2018-07-20T16:56:45-04:00'
+featured_image: /images/chris-benson-411764-unsplash-1-.jpg
 tags:
   - Parenting
 draft: true
@@ -19,4 +20,4 @@ When I began researching,  I started with the book, [Born to Eat ](https://amzn.
 
 I also read the book, [Baby-led feeding](https://amzn.to/2mvRYR9) by Jenna Helwig with Natalia Stasenko. They say that one of the main benefits of self-feeding is the greater satiety responsiveness, the mechanism that allows us to eat until we are full and stop before eating too much. They also say that it boosts oral motor development. 
 
-It has been over two months now that my baby has been Baby Led Weaning. He started when he was 7 months old, because that’s when he started sitting up unassisted. He loves to eat and has tried so many foods now, from fruits to veggies to meats. You can see his journey on my [instagram](https://instagram.com/life_points/). To be honest, I was not confident about Baby Led Weaning when I started, so I took a course with [feedinglittle](http://www.feedinglittles.com/babies.html)s and I am so thankful that I did. It calmed my fears and helped equip me with what to feed my baby and how to decipher between gagging and choking.  It is an online course led by an occupational therapist and a registered dietitian nutritionist. For this month only, if you sign up with the promo code LIFEPOINTS, you will receive 10 dollars off their course. I learned so much from this course and also had a few friends I could reach out to for support, when I felt like the only one feeding my baby this way. So feel free to e-mail me with any questions. Happy eating!!
+It has been over two months now that my baby has been Baby Led Weaning. He started when he was 7 months old, because that’s when he started sitting up unassisted. He loves to eat and has tried so many foods now, from fruits to veggies to meats. You can see his journey on my [instagram](https://instagram.com/life_points/). To be honest, I was not confident about Baby Led Weaning when I started, so I took a course with [feedinglittle](http://www.feedinglittles.com/babies.html)s and I am so thankful that I did. It calmed my fears and helped equip me with what to feed my baby and how to decipher between gagging and choking.  It is an online course led by an occupational therapist and a registered dietitian nutritionist. For this month only, if you sign up with the promo code LIFEPOINTS, you will receive 10 dollars off their course. I learned so much from this course and also had a few friends I could reach out to for support, when I felt like the only one feeding my baby this way. So feel free to e-mail me with any questions. I will say Baby Led Weaning is very messy, but so fun! Happy eating!!
