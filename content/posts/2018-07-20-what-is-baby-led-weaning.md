@@ -4,7 +4,7 @@ date: '2018-07-20T16:56:45-04:00'
 featured_image: /images/chris-benson-411764-unsplash-1-.jpg
 tags:
   - Parenting
-draft: true
+draft: false
 ---
 Now that I have become a mom, I have realized that there are so many different ways to approach parenting, from what diapers you use, to what parenting philosophy you follow, to how your baby sleeps, to how you feed your baby.  Being a parent is not easy and I support whatever approach works for your family. 
 
