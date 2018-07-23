@@ -26,14 +26,14 @@ It has been over two months now that my baby has been Baby Led Weaning. He start
 
 **Baby Plate:** [Avanchy Baby Feeding Bamboo Plate](https://amzn.to/2mAcQXq) - I love that this suctions to most tables and that it is made out of bamboo.
 
-**Spoons: **[ChooMee Baby Starter Spoons](https://amzn.to/2v3xUJZ) - I preload a spoon with steel cut oats or hummus and my baby loves to use the spoon himself and eat it. He also loves the feeling on these spoons on his gums and they bend.
+**Spoons:** [ChooMee Baby Starter Spoons](https://amzn.to/2v3xUJZ) - I preload a spoon with steel cut oats or hummus and my baby loves to use the spoon himself and eat it. He also loves the feeling on these spoons on his gums and they bend.
 
-**Crinkle Cutter: **This [crinkle cutter](https://amzn.to/2zXQ5GD) is great for helping your little one hold on to certain foods. It gives it a different texture and crinkles it. It worked great for steamed apples, pears, and sweet potatoes. 
+**Crinkle Cutter:** This [crinkle cutter](https://amzn.to/2zXQ5GD) is great for helping your little one hold on to certain foods. It gives it a different texture and crinkles it. It worked great for steamed apples, pears, and sweet potatoes. 
 
-**Straw Cup: **They say that straw cups are better for oral motor development, so we worked really hard to teach our baby to use one and now he loves to drink smoothies out of the [OXO straw cup](https://amzn.to/2NzrrOk).
+**Straw Cup:** They say that straw cups are better for oral motor development, so we worked really hard to teach our baby to use one and now he loves to drink smoothies out of the [OXO straw cup](https://amzn.to/2NzrrOk).
 
-**Cup: **My baby loves to drink water with his meals with the [Munchkin 360 cup. ](https://amzn.to/2LBUkJb)
+**Cup:** My baby loves to drink water with his meals with the [Munchkin 360 cup. ](https://amzn.to/2LBUkJb)
 
-**Bibs: **I love these [Monkey Moo Bibs.](https://amzn.to/2LEz1Xm) They are made out of silicone and catch most of the food he drops.
+**Bibs:** I love these [Monkey Moo Bibs.](https://amzn.to/2LEz1Xm) They are made out of silicone and catch most of the food he drops.
 
-**Splash Mat: **Baby Led Weaning is very messy and I recently discovered the [Bumpkins Splat Floor Mat](https://amzn.to/2JLoJDg). This way if he drops something, I don't worry that it is dirty and it all stays in one place.
+**Splash Mat:** Baby Led Weaning is very messy and I recently discovered the [Bumpkins Splat Floor Mat](https://amzn.to/2JLoJDg). This way if he drops something, I don't worry that it is dirty and it all stays in one place.
