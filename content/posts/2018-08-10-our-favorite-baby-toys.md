@@ -13,18 +13,15 @@ Wooden toys are sustainable and last a long time. They are eco-friendly too! The
 
  Another tip I’ve read about plastic toys is to look for toys that are BPA, Phthalates, and PVC free. Toys made from plastics #2, 4, and 5 are considered safer choices. [Green toys](https://amzn.to/2vudwT0)  is one of the better plastic toy companies out there.
 
-
 So without further ado...here are my baby’s favorite toys and some I hope to buy in the future. I have spent a little too much time researching toys, so I hope it is helpful to you.
 
 **Teethers**
 
 I consider these a toy because he loves them so much and still plays with them. I can’t go anywhere without my [teething necklace](https://amzn.to/2OOIYn7). He also loves the [banana teether](https://amzn.to/2niMz08) (We have two), [Blue Anchor](https://amzn.to/2M0rUwO), [Sili Paw teethers](https://amzn.to/2vp3vqk), and [baby fruit teethers](https://amzn.to/2LZ8aJH).
 
-
 **Wooden toys**
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=B000I8SMZE&asins=B000I8SMZE&linkId=041fbe82e137ea790cbbc3c83edff8e5&show_border=true&link_opens_in_new_window=true"></iframe>
-
 
 Chomp Chomp-This is what we named this [Alligator Pull Toy](https://amzn.to/2KOzG7C). My baby is technically too young for this toy, so I never leave him unsupervised with this toy, but he absolutely loves him and I do a lot of dramatic play with it, especially about how biting hurts. I love the company, [Plan Toys](https://amzn.to/2vBEecx), that makes these toys.
 
@@ -37,7 +34,6 @@ Chomp Chomp-This is what we named this [Alligator Pull Toy](https://amzn.to/2KOz
 [Double Bubble Wooden Bead Maze](https://amzn.to/2MDIP4m)- This one is really fun. You can connect it to a table with the suction cups underneath it or even to a book. I like to put it on his high chair if he is finished eating and wants to play, while we finish eating. 
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=B001D42ZG4&asins=B001D42ZG4&linkId=746cf016b550e55b93ca6058a11fe0f6&show_border=true&link_opens_in_new_window=true"></iframe>
-
 
 [Camden Rose Car](https://amzn.to/2AZ2cDD)-My baby loves this car. I make a sound like I am starting the engine and he always laughs. He loves when I pretend to drive it around and say beep beep, when books or other toys are in our way. He now makes the car sounds himself.
 
@@ -76,35 +72,29 @@ Where is Baby’s Belly Button?](https://amzn.to/2P0xDAr)- He loves lifting the 
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=141694737X&asins=141694737X&linkId=f049c40bc43d5dad470c82f66bf8da75&show_border=true&link_opens_in_new_window=true"></iframe>
 
-
 [Dear Zoo Book](https://amzn.to/2B0U7hN)-This is another lift the flap book full of zoo animals and he especially loves the surprise ending.
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0761168818&asins=0761168818&linkId=6730a985072eba976ae96c49177c63a7&show_border=true&link_opens_in_new_window=true"></iframe>
-
 
 [Indestructibles: Baby Faces](https://amzn.to/2KGqQbH)-Since he was eating the books, I bought this book which is indestructible, as the title describes. It is a great one for teaching about emotions. They are chew-proof, rip-proof, and drool-proof.
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0694003611&asins=0694003611&linkId=c721d19ee1baf352a5d9fd861b772796&show_border=true&link_opens_in_new_window=true"></iframe>
 
-
 [Goodnight Moon](https://amzn.to/2vA9dWj)- This one is a classic and I love the colors of this book for especially when he was younger.
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=1442450703&asins=1442450703&linkId=8e77fb2350d8e73fb8926f8f3b1fdf73&show_border=true&link_opens_in_new_window=true"></iframe>\
-[
+\[
 Chicka Boom Boom](https://amzn.to/2KIsiur)- My baby absolutely loves this book. He cracks up when he hears Chicka Chicka Boom Boom and he loves the colors of the book.
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0374360979&asins=0374360979&linkId=e78cd74bd150cf5e95409f6eb9a3b0ad&show_border=true&link_opens_in_new_window=true"></iframe>
-
 
 [The Pout Pout Fish](https://amzn.to/2MjiCeo)-  My baby really enjoys this story about a glum and gloomy fish. I love to read it to him when we go to the beach.
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0545029317&asins=0545029317&linkId=c4afc5de91686911cbb588e4f93c4d19&show_border=true&link_opens_in_new_window=true"></iframe>
 
-
 [I Love You Because You’re You](https://amzn.to/2vABNa6)-This book is so sweet and really expresses all the words I want to tell my baby. 
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=067144901X&asins=067144901X&linkId=5feb38d1d07282fe426d2a401d4fd8aa&show_border=true&link_opens_in_new_window=true"></iframe>
-
 
 [Moo Baa La La La](https://amzn.to/2MzAVc9)- This is a cute book that teaches the animal sounds. He really adores this one, so much that he ate some of it.
 
@@ -112,7 +102,6 @@ Chicka Boom Boom](https://amzn.to/2KIsiur)- My baby absolutely loves this book. 
 
 [
 First 100 words](https://amzn.to/2Os1qRy)- He has loved this one since he was younger and especially loves the page with babies on it.
-
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=1452112495&asins=1452112495&linkId=16f5d6dc4fe262b9ea61acfb46ebb073&show_border=true&link_opens_in_new_window=true"></iframe>
 
@@ -125,6 +114,25 @@ Little Horse Finger Puppet Book](https://amzn.to/2KJFCP5)- He loves this book an
 
 **Toys I Want to Buy in The Future**
 
-Pickler Triangle https://amzn.to/2vwmjno
- Hape Gourmet Kitchen https://amzn.to/2M9Qtr9
-Hape wild animal puzzle
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=B075DKG1C1&asins=B075DKG1C1&linkId=0cd5764a556c6aeaa4b43e05a63d5736&show_border=true&link_opens_in_new_window=true"></iframe>
+
+[Pickler Triangle](https://amzn.to/2AXEF69)- This is great for climbing and for developing motor skills.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=B005ZSQGUU&asins=B005ZSQGUU&linkId=358a00bff188183b60705ba97f91ae95&show_border=true&link_opens_in_new_window=true"></iframe>
+
+[Camden Rose Play Kitchen](https://amzn.to/2KLsQiR)- I would love one like this for our baby boy. I like knowing that it is made in the USA. The price tag is high, so the other option would be to find someone who can make one like this.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=B00BJKW8U0&asins=B00BJKW8U0&linkId=07c86119825e725105e77f834e46ca28&show_border=true&link_opens_in_new_window=true"></iframe>
+
+[Plan Toys Camera](https://amzn.to/2Mhvcek)- Our baby boy always seems ready to smile for the camera (as in iphone camera) and I would love him to know what a real camera looks like. I think he will love this toy in the future.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=B00DUDSU7O&asins=B00DUDSU7O&linkId=733ab5c1b4c8ab8b9ff5f095d6ea957d&show_border=true&link_opens_in_new_window=true"></iframe>
+
+[Hape Activity Play Cube](https://amzn.to/2Mgc7t2)- He loves these activity cubes at storytime. 
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=B0071YJOXW&asins=B0071YJOXW&linkId=f12703877d62c940f4ef2e10b8e9a9ad&show_border=true&link_opens_in_new_window=true"></iframe>
+
+[
+Hape Wild Animal Puzzle](https://amzn.to/2P5IqJQ) - I think this will be cute as his first puzzle, since he loves animals.
+
+I hope this blog post helped you a bit and wasn't too overwhelming. I would love to know what toys your babies and children love!
