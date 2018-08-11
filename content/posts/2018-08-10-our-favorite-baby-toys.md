@@ -108,15 +108,22 @@ Chicka Boom Boom](https://amzn.to/2KIsiur)- My baby absolutely loves this book. 
 
 [Moo Baa La La La](https://amzn.to/2MzAVc9)- This is a cute book that teaches the animal sounds. He really adores this one, so much that he ate some of it.
 
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0312510780&asins=0312510780&linkId=1ff932d1a51829bf311516375f145125&show_border=true&link_opens_in_new_window=true"></iframe>
 
-First 100 words
-Noah’s Noisy Zoo
-Inside Noah’s Ark
-Little Horse finger puppet book
+[
+First 100 words](https://amzn.to/2Os1qRy)- He has loved this one since he was younger and especially loves the page with babies on it.
 
-Yoga Book
 
-Toys I want to buy in the future
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=1452112495&asins=1452112495&linkId=16f5d6dc4fe262b9ea61acfb46ebb073&show_border=true&link_opens_in_new_window=true"></iframe>
+
+[
+Little Horse Finger Puppet Book](https://amzn.to/2KJFCP5)- He loves this book and the horse seems real to him. He loves chatting with him, as we read along.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0718037529&asins=0718037529&linkId=07986ab61b01082d088efac30c7e8be8&show_border=true&link_opens_in_new_window=true"></iframe>
+
+[Noah's Noisy Zoo](https://amzn.to/2OXw9Hb)- I can't tell if he loves this book because of the name or the animals. 
+
+**Toys I Want to Buy in The Future**
 
 Pickler Triangle https://amzn.to/2vwmjno
  Hape Gourmet Kitchen https://amzn.to/2M9Qtr9
