@@ -16,7 +16,9 @@ Wooden toys are sustainable and last a long time. They are eco-friendly too! The
 
 So without further ado...here are my baby’s favorite toys and some I hope to buy in the future. I have spent a little too much time researching toys, so I hope it is helpful to you.
 
-**Teethers**-I consider these a toy because he loves them so much and still plays with them. I can’t go anywhere without my [teething necklace](https://amzn.to/2OOIYn7). He also loves the [banana teether](https://amzn.to/2niMz08) (We have two), [Blue Anchor](https://amzn.to/2M0rUwO), [Sili Paw teethers](https://amzn.to/2vp3vqk), and [baby fruit teethers](https://amzn.to/2LZ8aJH).
+**Teethers**
+
+I consider these a toy because he loves them so much and still plays with them. I can’t go anywhere without my [teething necklace](https://amzn.to/2OOIYn7). He also loves the [banana teether](https://amzn.to/2niMz08) (We have two), [Blue Anchor](https://amzn.to/2M0rUwO), [Sili Paw teethers](https://amzn.to/2vp3vqk), and [baby fruit teethers](https://amzn.to/2LZ8aJH).
 
 
 **Wooden toys**
@@ -49,31 +51,70 @@ Chomp Chomp-This is what we named this [Alligator Pull Toy](https://amzn.to/2KOz
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=B073J2C879&asins=B073J2C879&linkId=d05fd23a1436b395d7ba450641aadc7b&show_border=true&link_opens_in_new_window=true"></iframe>
 
-Organic Wood Montessori Baby Rattle- He loves this one so much. It is great for car rides. He also uses this as a baby rattle. We recently went to see a jazz band and he played along with his rattle. 
+[Organic Wood Montessori Baby Rattle](https://amzn.to/2OZjUda)- He loves this one so much and it is great for car rides. He also uses this as a baby rattle. We recently went to see a jazz band and he played along to their music with his rattle. 
 
-Haba clutching toy- He loves just holding this one or throwing it.
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=B0033M22LM&asins=B0033M22LM&linkId=e37996188ef330ba661760707a5ebe2f&show_border=true&link_opens_in_new_window=true"></iframe>
 
-Haba teether cuddly rainbow round-He loves this for sensory play and also to play it like a drum.
+[Haba Clutching Toy](https://amzn.to/2vAXtDf)- He loves just holding this one or throwing it.
 
-3. Books-
-   ```
-          To be honest, books are his FAVORITE toys. He actually has ate paper from a few of    
-          them (SMH). I only let him play with the board books alone while watching him since he likes to eat them, but supervise the others. These are his favorite board books…
-   ```
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=B0169SG5Z0&asins=B0169SG5Z0&linkId=dafaec0abe6b92496db509d761fb9a85&show_border=true&link_opens_in_new_window=true"></iframe>
 
-Ten Little Fingers and Ten Little Toes-This is such a beautiful story about all different babies from around the world. I love that it celebrates diversity and our differences.
-Where is baby’s belly button?
-Dear Zoo book
-Indestructibles baby book
-Goodnight Moon
-Chicka Boom Boom
-The Pout Pout fish
-I love you because you’re you
-Moo Baa La La La
+[Haba Teether Cuddly Rainbow Round](https://amzn.to/2MeTV2Y)-He loves this for sensory play and also to play it like a drum.
+
+**Books**-
+
+To be honest, books are his FAVORITE toys. He actually has ate paper from a few of them (SMH). I only let him play with the board books, while watching him, since he likes to eat them. These are his favorite board books…
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0547366205&asins=0547366205&linkId=02445215289f9995d60c3e7efad20c52&show_border=true&link_opens_in_new_window=true"></iframe>
+
+[Ten Little Fingers and Ten Little Toes](https://amzn.to/2MjN0W6)-This is such a beautiful story about all different babies from around the world. I love that it celebrates diversity and our differences. I have read it since he was born and he never gets tired of it.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0689835604&asins=0689835604&linkId=87d585153db47821f2c45b9ba8066099&show_border=true&link_opens_in_new_window=true"></iframe>
+
+[
+Where is Baby’s Belly Button?](https://amzn.to/2P0xDAr)- He loves lifting the flaps of this book and learning the different body parts.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=141694737X&asins=141694737X&linkId=f049c40bc43d5dad470c82f66bf8da75&show_border=true&link_opens_in_new_window=true"></iframe>
+
+
+[Dear Zoo Book](https://amzn.to/2B0U7hN)-This is another lift the flap book full of zoo animals and he especially loves the surprise ending.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0761168818&asins=0761168818&linkId=6730a985072eba976ae96c49177c63a7&show_border=true&link_opens_in_new_window=true"></iframe>
+
+
+[Indestructibles: Baby Faces](https://amzn.to/2KGqQbH)-Since he was eating the books, I bought this book which is indestructible, as the title describes. It is a great one for teaching about emotions. They are chew-proof, rip-proof, and drool-proof.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0694003611&asins=0694003611&linkId=c721d19ee1baf352a5d9fd861b772796&show_border=true&link_opens_in_new_window=true"></iframe>
+
+
+[Goodnight Moon](https://amzn.to/2vA9dWj)- This one is a classic and I love the colors of this book for especially when he was younger.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=1442450703&asins=1442450703&linkId=8e77fb2350d8e73fb8926f8f3b1fdf73&show_border=true&link_opens_in_new_window=true"></iframe>\
+[
+Chicka Boom Boom](https://amzn.to/2KIsiur)- My baby absolutely loves this book. He cracks up when he hears Chicka Chicka Boom Boom and he loves the colors of the book.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0374360979&asins=0374360979&linkId=e78cd74bd150cf5e95409f6eb9a3b0ad&show_border=true&link_opens_in_new_window=true"></iframe>
+
+
+[The Pout Pout Fish](https://amzn.to/2MjiCeo)-  My baby really enjoys this story about a glum and gloomy fish. I love to read it to him when we go to the beach.
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0545029317&asins=0545029317&linkId=c4afc5de91686911cbb588e4f93c4d19&show_border=true&link_opens_in_new_window=true"></iframe>
+
+
+[I Love You Because You’re You](https://amzn.to/2vABNa6)-This book is so sweet and really expresses all the words I want to tell my baby. 
+
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=067144901X&asins=067144901X&linkId=5feb38d1d07282fe426d2a401d4fd8aa&show_border=true&link_opens_in_new_window=true"></iframe>
+
+
+[Moo Baa La La La](https://amzn.to/2MzAVc9)- This is a cute book that teaches the animal sounds. He really adores this one, so much that he ate some of it.
+
+
 First 100 words
 Noah’s Noisy Zoo
 Inside Noah’s Ark
 Little Horse finger puppet book
+
+Yoga Book
 
 Toys I want to buy in the future
 
