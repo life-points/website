@@ -1,6 +1,7 @@
 ---
 title: Our Favorite Baby Toys
 date: '2018-08-10T11:44:14-04:00'
+featured_image: /images/colin-maynard-231363-unsplash-1-2-.jpg
 tags:
   - Parenthood
 draft: true
