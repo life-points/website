@@ -83,9 +83,10 @@ Where is Baby’s Belly Button?](https://amzn.to/2P0xDAr)- He loves lifting the 
 
 [Goodnight Moon](https://amzn.to/2vA9dWj)- This one is a classic and I love the colors of this book for especially when he was younger.
 
-<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=1442450703&asins=1442450703&linkId=8e77fb2350d8e73fb8926f8f3b1fdf73&show_border=true&link_opens_in_new_window=true"></iframe>\
-\[
-Chicka Boom Boom](https://amzn.to/2KIsiur)- My baby absolutely loves this book. He cracks up when he hears Chicka Chicka Boom Boom and he loves the colors of the book.
+<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=1442450703&asins=1442450703&linkId=8e77fb2350d8e73fb8926f8f3b1fdf73&show_border=true&link_opens_in_new_window=true"></iframe>
+
+
+[Chicka Boom Boom](https://amzn.to/2P1K3rN)- My baby absolutely loves this book. He cracks up when he hears Chicka Chicka Boom Boom and he loves the colors of the book.
 
 <iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&OneJS=1&Operation=GetAdHtml&MarketPlace=US&source=ss&ref=as_ss_li_til&ad_type=product_link&tracking_id=lifepoints02-20&language=en_US&marketplace=amazon&region=US&placement=0374360979&asins=0374360979&linkId=e78cd74bd150cf5e95409f6eb9a3b0ad&show_border=true&link_opens_in_new_window=true"></iframe>
 
