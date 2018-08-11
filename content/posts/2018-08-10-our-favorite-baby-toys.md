@@ -4,7 +4,7 @@ date: '2018-08-10T11:44:14-04:00'
 featured_image: /images/colin-maynard-231363-unsplash-1-2-.jpg
 tags:
   - Parenthood
-draft: true
+draft: false
 ---
 Many people have noticed when they come to visit that we don’t have millions of toys for our baby and the toys that we do have are mostly wooden with no sounds or flashing lights. It is not that we are trying to deprive our baby of toys, but after years of teaching children and not using props in my theater classes, I came to realize how an over abundance of toys,  can overstimulate kids, when they are just starting to notice so much around them. 
 
