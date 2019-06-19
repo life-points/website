@@ -1,7 +1,10 @@
 ---
 title: How to Travel with a Toddler with Minimal Screen time
 date: '2019-06-17T13:59:36-04:00'
-draft: true
+featured_image: /images/chris-lawton-346402-unsplash-2.jpg
+tags:
+  - Parenthood
+draft: false
 ---
 I was always scared to travel on a plane with my son, when he was younger. Then when he turned 1, I felt more comfortable and decided to give it a try. We have now gone on two trips. We first went to Florida and then to San Francisco. I really prepared for each trip, by asking more experienced mothers for their advice and researching as much as I could. I didn't expect to be stuck in an airport and airplane for 16 hours, when our airline experienced bad weather, circled in the air for hours, took us on and off the plane, and finally at 11pm at night canceled our connecting flight and landed us in a different state without a place to stay. (Thanks American Airlines).
 
