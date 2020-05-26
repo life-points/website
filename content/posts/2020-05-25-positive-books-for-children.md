@@ -4,7 +4,7 @@ date: '2020-05-25T19:30:59-04:00'
 featured_image: /images/kimberly-farmer-luaakcuanvi-unsplash-2.jpg
 tags:
   - Parenthood
-draft: true
+draft: false
 ---
 I have always loved reading since I was a little girl. I remember my mom driving me to lessons, and my head was always stuck in a book. Reading on the beach is my favorite thing to do. When I became a mom, I really started analyzing the books I was reading to my son and found myself changing the word's quickly or switching the book I was reading. It has become really important to me to read positive books to my son. Here is a list I have compiled of books I feel comfortable having on our bookshelf.
 
