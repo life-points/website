@@ -6,7 +6,7 @@ tags:
   - Parenthood
 draft: false
 ---
-I have always loved reading since I was a little girl. I remember always reading books on car rides with my family, instead of paying attention to the scenery. I have always been drawn to positive books. When I became a mom, I really started analyzing the books I was reading to my son and found myself changing the word's quickly or switching the book I was reading. It has become really important to me to read positive books to my son. Here is a list I have compiled of books I feel comfortable having on our bookshelf.
+I have always loved reading since I was a little girl. I remember always reading books on car rides with my family, instead of paying attention to the scenery. I was especially drawn to positive books and still am. When I became a mom, I really started analyzing the books I was reading to my son and found myself changing the word's quickly or switching the book I was reading. It has become really important to me to read positive books to my son. Here is a list I have compiled of books I feel comfortable having on our bookshelf.
 
 <a href="https://www.amazon.com/Dear-Boy-Paris-Rosenthal/dp/0062422510/ref=as_li_ss_il?dchild=1&keywords=Dear+Boy&qid=1590449758&sr=8-1&linkCode=li2&tag=lifepoints02-20&linkId=757b6ba7372779df5d7879af20ae2fac&language=en_US" target="_blank"><img border="0" src="//ws-na.amazon-adsystem.com/widgets/q?_encoding=UTF8&ASIN=0062422510&Format=_SL160_&ID=AsinImage&MarketPlace=US&ServiceVersion=20070822&WS=1&tag=lifepoints02-20&language=en_US" ></a><img src="https://ir-na.amazon-adsystem.com/e/ir?t=lifepoints02-20&language=en_US&l=li2&o=1&a=0062422510" width="1" height="1" border="0" alt="" style="border:none !important; margin:0px !important;" />
 
