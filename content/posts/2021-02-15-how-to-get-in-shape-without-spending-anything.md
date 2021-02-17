@@ -4,7 +4,7 @@ date: '2021-02-15T21:13:03-05:00'
 featured_image: /images/bruno-nascimento-phigyugqpvu-unsplash.jpg
 tags:
   - Health
-draft: true
+draft: false
 ---
 At the start of this pandemic, baking cookies, bread, and muffins were my top priority, but as time went on, I went back to focusing on eating healthy and working out. What I realized after trial and error is how you can get fit without spending anything. 
 
