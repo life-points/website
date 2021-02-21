@@ -1,6 +1,7 @@
 ---
 title: How to Get Your Creative Juices Flowing
 date: '2021-02-21T12:26:09-05:00'
+featured_image: /images/dragos-gontariu-54vab3f1z6w-unsplash.jpg
 tags:
   - Inspiration
 draft: true
@@ -22,5 +23,7 @@ Reading positive books with a focus on a growth mindset has also helped me get c
 Letting go of the need to show people your work and do something for you can also be very freeing. It allows you to create without an expectation and to be silly and free with your work.
 
 In my business, I teach adults and children ways to tap into their inner child and through improv we get creative. Teaching taps into creativity for me and it creates an ability to connect with someone else's creativity too. There is an amazing exchange in improv that needs creativity to happen.
+
+Creativity looks different for everyone. You may find your creativity through cooking, baking, sewing, painting, singing, gardening, building, writing, etc. It is a beautiful gift when you tap into it.
 
 I'd love to hear what gets your creative juices flowing and would feel so honored if you shared anything you have created with me. Happy Creating!
