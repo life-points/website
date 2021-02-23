@@ -6,7 +6,7 @@ tags:
   - Inspiration
 draft: false
 ---
-I have always loved creativity. Since I was a little girl, creating with my imagination was my favorite thing. Sometimes it can be hard to get in a creative zone, when you are juggling work, parenting, and everday life. I'd like to share 6 ways to get your creative juices flowing.
+I have always loved creativity. Since I was a little girl, creating with my imagination was my favorite thing. Sometimes it can be hard to get in a creative zone, when you are juggling work, parenting, and everyday life. I'd like to share 6 ways to get your creative juices flowing.
 
 1. Read the beautiful book called, [The Artist's Way](https://amzn.to/3ukjRgU). If you commit to doing this book and everything it tells you, you will get creative in new ways. From morning pages, to artist dates, to diving into who you are, this book is number 1 for creativity.
 
