@@ -4,7 +4,7 @@ date: '2021-06-08T15:33:57-04:00'
 featured_image: /images/coffee-photo-1-.jpeg
 tags:
   - Health
-draft: true
+draft: false
 ---
 Coffee and I have had a long road together. I have been drinking it for a while and it has been the topic of many conversations with my friends. It has really brought me joy. The feeling of walking into a new coffee shop has always been exciting and fun, especially when we travel to a new city. I have gone from drinking Dunkin Donuts, to Starbucks, to strictly local coffee shoppes, to getting beans the day after they were roasted. 
 
