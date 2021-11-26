@@ -16,17 +16,17 @@ Here are my steps to establishing your daily rhythm
 
 For me, this looks like journaling, writing affirmations, reading an inspiring or educational book and the bible. I have all of those right by my bed, so I can flood my mind with them right away. 
 
-**\#2: **Decide what will nourish your soul and keep you feeling your best and do that first thing. Is it wearing an outfit you feel good in? Is it working out? Is it meditating or eating a healthy breakfast?
+**\#2**: Decide what will nourish your soul and keep you feeling your best and do that first thing. Is it wearing an outfit you feel good in? Is it working out? Is it meditating or eating a healthy breakfast?
 
 For me, this looks like working out, doing a meditation, and eating a healthy filling breakfast.
 
-**\#3: **Decide how you will fill your mind with positivity throughout the day. Let go of what isn't serving your mind and is adding stress or negativity to your life.
+**\#3**: Decide how you will fill your mind with positivity throughout the day. Let go of what isn't serving your mind and is adding stress or negativity to your life.
 
 This takes time because it is very individualized for each person. It could be when you go on social media, it brings you down or watching the news. If so, eliminate those. Think about the things that bring you joy and fill your day with that in your free moments.
 
 For me this looks like listening to positive music, taking walks, getting outside, being mindful of time on social media, and watching something funny/inspiring.
 
-**\#4:** Decide how to make the things you don't enjoy more joyful. Sometimes it could be your job, or chores around the house. How can you make those things a little bit brighter?
+**\#4**: Decide how to make the things you don't enjoy more joyful. Sometimes it could be your job, or chores around the house. How can you make those things a little bit brighter?
 
 For me, listening to a podcast while I wash the dishes gets me washing dishes much faster. 
 
